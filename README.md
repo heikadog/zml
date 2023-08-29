@@ -1,6 +1,6 @@
 # Zoophile Mute List GitHub Repo
 
-This is the current home of the Zoophile Mute List, a mute list for Bluesky that automatically mutes people who actively interact with or are zoophiles. This README serves as a directory of sorts, so everything associated with the list is readily accessible. Select the links below to navigate to the respective place. 
+This is the current home of the Zoophile Mute List, a mute list for Bluesky that automatically mutes people who actively interact with or are zoophiles. This README serves as a directory of sorts, so everything associated with the list is readily accessible. Navigate using the links below. 
 
 - [View and subscribe to the mute list.](https://bsky.app/profile/heika.dog/lists/3k3eg23h7ko2i)
 
