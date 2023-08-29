@@ -14,4 +14,4 @@ Subscribing to this list does not automatically block the people on it; you must
 
 - [Submit an account to the list, request to be removed, or submit feedback.](https://zmlform.heika.dog)
 
-Because there's already a form to submit accounts to the list, don't submit them as an issue or pull request; submit them at the link above (https://zmlform.heika.dog) instead so your response is confidential. Only submit an issue or pull request here if you have a suggestion or fix for this GitHub repo itself.
+Because there's already a form to submit accounts to the list, don't submit them as an issue or pull request; submit them at https://zmlform.heika.dog instead, so your response is kept confidential. Only submit an issue or pull request here if you have a suggestion or fix for this GitHub repo itself.
