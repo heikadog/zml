@@ -129,3 +129,5 @@ Subscribing to this list does not automatically block the people on it; you must
 68. JenklinDog (@jenklindog.bsky.social) follows several known zoophiles like Alder, HateEven, Skolth, and Soren: (<https://bsky.app/profile/jenklindog.bsky.social/follows>).
 69. Daemon (@daemon.feral.army) follows several known zoophiles like Soren, Cenny, HateEven, DottiPink, and Doberthem: (<https://bsky.app/profile/daemon.feral.army/follows>)
 70. ZoroAluna (@zoroaluna.bsky.social) is an open zoophile and follows open zoophiles like Ginfossa, Huskeee, PossBeans, The Dog Queen, WolfJLupus, and ZooeyDonk: (<https://bsky.app/profile/zoroaluna.bsky.social/follows>)
+71. Maple (@mapleden.bsky.social) is an open zoophile.
+72. darksideofazoo (@darksideofazoo.bsky.social) is an open zoophile.
