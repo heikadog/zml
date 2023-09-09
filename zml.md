@@ -131,3 +131,4 @@ Subscribing to this list does not automatically block the people on it; you must
 70. ZoroAluna (@zoroaluna.bsky.social) is an open zoophile and follows open zoophiles like Ginfossa, Huskeee, PossBeans, The Dog Queen, WolfJLupus, and ZooeyDonk: (<https://bsky.app/profile/zoroaluna.bsky.social/follows>)
 71. Maple (@mapleden.bsky.social) is an open zoophile.
 72. darksideofazoo (@darksideofazoo.bsky.social) is an open zoophile.
+73. Muddy Doggo (@muddyhounddog.feral.army) liked a post of the "zootherian flag" from WolfJLupus: (<https://bsky.app/profile/wolfjlupus.bsky.social/post/3k6oevshtln23/liked-by>) and follows known zoophiles like BirtyFur, Thera, and DangerDoberman: (<https://bsky.app/profile/muddyhounddog.feral.army/follows>).
