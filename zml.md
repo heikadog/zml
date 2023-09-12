@@ -11,15 +11,18 @@ This mute list automatically mutes people who actively interact with or are zoop
 
 _[All relevant links to evidence have been archived on https://archive.today in the event that they go down or change for any reason. Bluesky links are unable to be archived at this time due to requiring a login.]_
 
+Some terms need to be defined for the mute list, so here are some useful definitions:
+
 - "Actively interacting with zoophiles" includes but is not limited to: liking posts relating to, replying to, following, or otherwise explicitly advocating for zoophilia.
   - For instance, simply following or occasionally interacting with someone who's been accused of being a zoophile is not enough to be put on this list; following a large amount of zoophiles or actively interacting with an account which posts content of animals being sexually abused or directly supporting posts relating to zoophilia is. (If I happen to send you evidence that your mutual is a zoophile and you block me, that is not enough to warrant putting you on the list either.) These stipulations prevent innocent people from being unfairly put on the mute list, as I'm aware these are serious accusations which can ruin a person's reputation and should not be taken lightly.
+- "Known" zoophiles are people who were outed as zoophiles, while "open" zoophiles embrace the label—these terms are not interchangeable.
 
 To be added to the mute list, candidates should meet at least one of these criteria:
 
-1. Anyone who actively interacts with or is evidently a zoophile. This includes indicators like having the zeta symbol (ζ) in their bio.
+1. Anyone who actively interacts with zoophiles, follows a large amount of zoophiles, or is otherwise evidently a zoophile. This includes indicators like having the zeta symbol (ζ) in their bio.
 2. Anyone that has been publicly exposed by a whistleblower for actively interacting with or being a zoophile. This includes alternate accounts, if applicable.
 3. People who are found to make spaces that openly welcome zoophiles, or are otherwise found to participate in conversations which advocate for or admit to zoophilic acts.
-4. Artists who draw feral NSFW art and their supporters will not be added unless there is evidence they actively interact with or are zoophiles. While I don't support NSFW feral art, this mute list is intended to expose people who have been found to support or facilitate harm done against real animals.
+4. Artists who draw feral NSFW art and their supporters will not be added unless there is evidence they actively interact with or are zoophiles. While I don't support NSFW feral art, this mute list is intended to expose people who have been found to support or facilitate harm done against real animals. Despite zoophiles continually using the label as a cover, therians are also not added by default under this same stipulation.
 
 You can submit people to the list, request to be removed from the list, or submit feedback for the list or this document here: <https://zmlform.heika.dog>.
 
@@ -168,3 +171,4 @@ Subscribing to this list does not automatically block the people on it; you must
 107. François (@tieddogs.bsky.social) is an open zoophile and only follows zoophiles: (<https://bsky.app/profile/tieddogs.bsky.social/follows>).
 108. Brave Moya (@bravemoya.bsky.social) only follows zoophiles: (<https://bsky.app/profile/bravemoya.bsky.social/follows>)
 109. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile and only follows zoophiles: (<https://bsky.app/profile/rikotheumbreon.bsky.social/follows>)
+110. Kit (@kittywitty) only follows and is followed by open zoophiles: (<https://bsky.app/profile/kittywitty.bsky.social/follows>)
