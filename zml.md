@@ -171,4 +171,5 @@ Subscribing to this list does not automatically block the people on it; you must
 107. François (@tieddogs.bsky.social) is an open zoophile and only follows zoophiles: (<https://bsky.app/profile/tieddogs.bsky.social/follows>).
 108. Brave Moya (@bravemoya.bsky.social) only follows zoophiles: (<https://bsky.app/profile/bravemoya.bsky.social/follows>)
 109. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile and only follows zoophiles: (<https://bsky.app/profile/rikotheumbreon.bsky.social/follows>)
-110. Kit (@kittywitty) only follows and is followed by open zoophiles: (<https://bsky.app/profile/kittywitty.bsky.social/follows>)
+110. Kit (@kittywitty.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/kittywitty.bsky.social/follows>)
+111. Deer (@deernainen.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/deernainen.bsky.social/follows>)
