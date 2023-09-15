@@ -173,3 +173,6 @@ Subscribing to this list does not automatically block the people on it; you must
 109. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile and only follows zoophiles: (<https://bsky.app/profile/rikotheumbreon.bsky.social/follows>)
 110. Kit (@kittywitty.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/kittywitty.bsky.social/follows>)
 111. Deer (@deernainen.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/deernainen.bsky.social/follows>)
+112. Arlaux (@arlauxwitchdog.bsky.social) is an open zoophile.
+113. Felion (@felion.bsky.social) is an open zoophile.
+114. unknownanybody (@unknownanybody.bsky.social) is mutuals with several open zoophiles: (<https://bsky.app/profile/unknownanybody.bsky.social>).
