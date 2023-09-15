@@ -120,7 +120,7 @@ Subscribing to this list does not automatically block the people on it; you must
 57. Woofingfox (@woofingfox.bsky.social) follows nothing but open zoophiles: (<https://bsky.app/profile/woofingfox.bsky.social/follows>), Kane (@canidliker.bsky.social) is an open zoophile, and Kharrs (@kharrs.bsky.social) is mutuals with an open zoophile and is only followed by open zoophiles: (<https://bsky.app/profile/kharrs.bsky.social/follows>).
 58. RoxyMoxye (@roxymoxye.bsky.social) only follows and is followed by zoophiles: (<https://bsky.app/profile/roxymoxye.bsky.social/follows>), and DavidBear (@davidbear.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/davidbear.bsky.social/follows>).
 59. ThunderRoo (@thunderroo.bsky.social) follows several zoophiles like Anubis Coyote, BirtyFur, and TobiDoge: (<https://bsky.app/profile/thunderroo.bsky.social/follows>).
-60. October Tiger (@october-tiger.bsky.social) follows several zoophiles like Kit, Anubis, and Chrispy: (<https://bsky.app/profile/october-tiger.bsky.social/follows>).
+60. October Tiger (@october-tiger.bsky.social) follows several zoophiles like Kit, Anubis, Chrispy, Sheppfox, Johabi, and Vulan: (<https://bsky.app/profile/october-tiger.bsky.social/follows>).
 61. Roxana (@roxanathewolf.bsky.social) is an open zoophile.
 62. Jade (@jadeeyedwere.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/jadeeyedwere.bsky.social/follows>). Additionally, she's dating an open zoophile: (<https://twitter.com/Sheppernoodle>)
 63. WolfJLupus (@wolfjlupus.bsky.social) is an open zoophile: (<https://archive.today/k0Tgs>). In 2017, he complained that his ad on a now-defunct furry personals website got taken down: (<https://archive.today/1PsOt>)
