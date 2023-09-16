@@ -175,3 +175,5 @@ Subscribing to this list does not automatically block the people on it; you must
 112. Arlaux (@arlauxwitchdog.bsky.social) is an open zoophile.
 113. Felion (@felion.bsky.social) is an open zoophile.
 114. unknownanybody (@unknownanybody.bsky.social) is mutuals with several open zoophiles: (<https://bsky.app/profile/unknownanybody.bsky.social>).
+115. Trill (@thecatstrill.bsky.social) is an open zoophile.
+116. Dioxi (@co2leggyboi.bsky.social) is KierenShep's sexual partner. They've also followed and flirted with Akari (<https://archive.today/FfAyy>) and Cenny (<https://archive.today/1FyGV>) despite both of them being outed as zoophiles after 2018. They follow Werel Wolf, Cenny, and Akari: (<https://bsky.app/profile/co2leggyboi.bsky.social/follows>) 
