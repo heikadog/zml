@@ -126,7 +126,7 @@ Subscribing to this list does not automatically block the people on it; you must
 63. WolfJLupus (@wolfjlupus.bsky.social) is an open zoophile: (<https://archive.today/k0Tgs>). In 2017, he complained that his ad on a now-defunct furry personals website got taken down: (<https://archive.today/1PsOt>)
 64. Fwucky (@fwucky.art) follows several zoophiles like Tarro, Soren, and Matuska: (<https://bsky.app/profile/fwucky.art/follows>).
 65. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles like The Dog Queen and DotaWolf: (<https://bsky.app/profile/machineanimal.bsky.social/followers>).
-66. PsychedelicYops (@psychedelicyops.pet) follows several known zoophiles like Stormy, Vulan, Tekkita, Paradox Wolf, and Anubis Coyote: (<https://bsky.app/profile/psychedelicyops.pet/follows>).
+66. PsychedelicYops (@psychedelicyops.pet) follows several known zoophiles like Stormy, Vulan, Tekkita, Paradox Wolf, MoosePup, Daemon, Tuskyn, Sheppfox, Philly Satark, Glowfox, TechRoo, Laveur, FoxB, Danger Doberman, Tekpup, Soren, Birty, Dire, Thunder Roodog, Dioxi, Cenny, Akari, Murrlin, Milo Blue, Kit Fox, and Anubis Coyote: (<https://bsky.app/profile/psychedelicyops.pet/follows>).
 67. Void (@puppyvoid.bsky.social) follows several open zoophiles like Soren, Aspen, Aster, and Thera: (<https://bsky.app/profile/puppyvoid.bsky.social/follows>).
 68. JenklinDog (@jenklindog.bsky.social) follows several known zoophiles like Alder, HateEven, Skolth, and Soren: (<https://bsky.app/profile/jenklindog.bsky.social/follows>).
 69. Daemon (@daemon.feral.army) follows several known zoophiles like Soren, Cenny, HateEven, DottiPink, Nillow, Matuska, and Kieran: (<https://bsky.app/profile/daemon.feral.army/follows>)
