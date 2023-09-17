@@ -173,3 +173,4 @@ Subscribing to this list does not automatically block the people on it; you must
 109. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile and only follows zoophiles: (<https://bsky.app/profile/rikotheumbreon.bsky.social/follows>)
 110. Kit (@kittywitty.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/kittywitty.bsky.social/follows>)
 111. Deer (@deernainen.bsky.social) only follows and is followed by open zoophiles: (<https://bsky.app/profile/deernainen.bsky.social/follows>)
+112. Tekfox (@tekfox.bsky.social) and Tuaolo (@tuaolothejag.bsky.social), along with Dire, were outed as zoophiles and were pictured at a ski meet with known zoophile Akari: (<https://twitter.com/ConStaffWatch/status/1399573940054347778>)
