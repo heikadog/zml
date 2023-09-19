@@ -181,7 +181,7 @@ Subscribing to this list does not automatically block the people on it; you must
 118. Adramedes (@adramedes.bsky.social) only follows and is followed by open zoophiles. (<https://bsky.app/profile/adramedes.bsky.social>)
 119. Mika (@vixencore.bsky.social) is a known zoophile. Despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry events because of how open she was about being a zoophile: (<https://archive.today/nt2gM>).
 
-- Additionally, she liked posts from open zoophiles like WolfJLupus: (<https://bsky.app/profile/wolfjlupus.bsky.social/post/3k7jtliwpve2n> / <https://bsky.app/profile/wolfjlupus.bsky.social/post/3k7jtliwpve2n/liked-by>).
-- Heart Chee: (<https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s> / <https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s/liked-by>).
+- Additionally, she liked posts from open zoophiles like WolfJLupus: (<https://bsky.app/profile/wolfjlupus.bsky.social/post/3k7jtliwpve2n> / <https://bsky.app/profile/wolfjlupus.bsky.social/post/3k7jtliwpve2n/liked-by>)
+- Heart Chee: (<https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s> / <https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s/liked-by>)
 - and Blethyn: (<https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j> / <https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j/liked-by>).
 - She also follows open zoophiles like Soren and Thera: (<https://bsky.app/profile/vixencore.bsky.social/follows>).
