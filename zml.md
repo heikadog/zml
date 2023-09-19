@@ -126,7 +126,7 @@ Subscribing to this list does not automatically block the people on it; you must
 63. WolfJLupus (@wolfjlupus.bsky.social) is an open zoophile: (<https://archive.today/k0Tgs>). In 2017, he complained that his ad on a now-defunct furry personals website got taken down: (<https://archive.today/1PsOt>)
 64. Fwucky (@fwucky.art) follows several zoophiles like Tarro, Soren, and Matuska: (<https://bsky.app/profile/fwucky.art/follows>).
 65. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles like The Dog Queen and DotaWolf: (<https://bsky.app/profile/machineanimal.bsky.social/followers>).
-66. PsychedelicYops (@psychedelicyops.pet) follows several known zoophiles like Stormy, Vulan, Tekkita, Paradox Wolf, MoosePup, Daemon, Tuskyn, Sheppfox, Philly Satark, Glowfox, TechRoo, Laveur, FoxB, Danger Doberman, Tekpup, Soren, Birty, Dire, Thunder Roodog, Dioxi, Cenny, Akari, Murrlin, Milo Blue, Kit Fox, and Anubis Coyote: (<https://bsky.app/profile/psychedelicyops.pet/follows>). Additionally, they liked a post from open zoophile WolfJLupus: (<https://bsky.app/profile/wolfjlupus.bsky.social/post/3k6tuplkr6l2k>)
+66. PsychedelicYops (@psychedelicyops.pet) follows several known zoophiles like Stormy, Vulan, Tekkita, Paradox Wolf, and Anubis Coyote: (<https://bsky.app/profile/psychedelicyops.pet/follows>).
 67. Void (@puppyvoid.bsky.social) follows several open zoophiles like Soren, Aspen, Aster, and Thera: (<https://bsky.app/profile/puppyvoid.bsky.social/follows>).
 68. JenklinDog (@jenklindog.bsky.social) follows several known zoophiles like Alder, HateEven, Skolth, and Soren: (<https://bsky.app/profile/jenklindog.bsky.social/follows>).
 69. Daemon (@daemon.feral.army) follows several known zoophiles like Soren, Cenny, HateEven, DottiPink, Nillow, Matuska, and Kieran: (<https://bsky.app/profile/daemon.feral.army/follows>)
@@ -176,5 +176,12 @@ Subscribing to this list does not automatically block the people on it; you must
 113. Felion (@felion.bsky.social) is an open zoophile.
 114. unknownanybody (@unknownanybody.bsky.social) is mutuals with several open zoophiles: (<https://bsky.app/profile/unknownanybody.bsky.social>).
 115. Trill (@thecatstrill.bsky.social) is an open zoophile.
-116. Dioxi (@co2leggyboi.bsky.social) is KierenShep's sexual partner. They've also followed and flirted with Akari (<https://archive.today/FfAyy>) and Cenny (<https://archive.today/1FyGV>) despite both of them being outed as zoophiles after 2018. They follow Werel Wolf, Cenny, and Akari: (<https://bsky.app/profile/co2leggyboi.bsky.social/follows>)
+116. Dioxi (@co2leggyboi.bsky.social) is KierenShep's sexual partner. They've also followed and flirted with Akari (<https://archive.today/FfAyy>) and Cenny (<https://archive.today/1FyGV>), despite both of them being outed as zoophiles after 2018. They follow Werel Wolf, Cenny, and Akari: (<https://bsky.app/profile/co2leggyboi.bsky.social/follows>)
 117. Tekfox (@tekfox.bsky.social) and Tuaolo (@tuaolothejag.bsky.social), along with Dire, were outed as zoophiles and pictured at a ski meet with known zoophile Akari: (<https://twitter.com/ConStaffWatch/status/1399573940054347778>)
+118. Adramedes (@adramedes.bsky.social) only follows and is followed by open zoophiles. (<https://bsky.app/profile/adramedes.bsky.social>)
+119. Mika (@vixencore.bsky.social) is a known zoophile. Despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry events because of how open she was about being a zoophile: (<https://archive.today/nt2gM>).
+
+- Additionally, she liked posts from open zoophiles like WolfJLupus: (<https://bsky.app/profile/wolfjlupus.bsky.social/post/3k7jtliwpve2n> / <https://bsky.app/profile/wolfjlupus.bsky.social/post/3k7jtliwpve2n/liked-by>).
+- Heart Chee: (<https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s> / <https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s/liked-by>).
+- and Blethyn: (<https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j> / <https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j/liked-by>).
+- She also follows open zoophiles like Soren and Thera: (<https://bsky.app/profile/vixencore.bsky.social/follows>).
