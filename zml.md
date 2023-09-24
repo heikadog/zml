@@ -19,7 +19,7 @@ Some terms need to be defined for the mute list, so here are some useful definit
 
 To be added to the mute list, candidates should meet at least one of these criteria:
 
-1. Anyone who actively interacts with zoophiles, follows a large amount of zoophiles, or is otherwise evidently a zoophile. This includes indicators like having the zeta symbol (ζ) in their bio.
+1. Anyone who actively interacts with zoophiles, follows a large amount of zoophiles, or is otherwise evidently a zoophile. This includes indicators like having the zeta symbol (ζ) in their bio, or having a handle that's linked to an explicitly zoophile-centric domain name, like \*.zoo.wtf, \*.zoo.and.me, or \*.zooey.pub.
 2. Anyone that has been publicly exposed by a whistleblower for actively interacting with or being a zoophile. This includes alternate accounts, if applicable.
 3. People who are found to make spaces that openly welcome zoophiles, or are otherwise found to participate in conversations which advocate for or admit to zoophilic acts.
 4. Artists who draw feral NSFW art and their supporters will not be added unless there is evidence they actively interact with or are zoophiles. While I don't support NSFW feral art, this mute list is intended to expose people who have been found to support or facilitate harm done against real animals. Despite zoophiles continually using the label as a cover, therians are also not added by default under this same stipulation.
@@ -57,7 +57,7 @@ Subscribing to this list does not automatically block the people on it; you must
 6. Kaptain (@kaptain.dog) was found openly harboring zoophiles in a DM and called people holding zoophiles accountable "a witch hunt," in addition to interacting with Cenny's AD. (<https://twitter.com/ExposeTheFV/status/1442165316608479232>)
 7. Huskeee (@huskeee.bsky.social) and Zoobydoobydoo (@zoobydoobydoo.bsky.social) are both open zoophiles who requested to be put on the list: (1: <https://bsky.app/profile/huskeee.bsky.social/post/3k3pdbw7hvw2d> / 2: <https://bsky.app/profile/zoobydoobydoo.bsky.social/post/3k3txqk7kz72y>)
 8. Zena O’Brien (@zenamobrien.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://bsky.app/profile/the984.bsky.social/post/3k3wp3usva62i>)
-9. Akito (@akito.zooand.me) hosts a zoophile podcast and self-identifies as a zoophile, interacting with several people on this list: (<https://bsky.app/profile/akito.zooand.me/post/3k46ghzxyqs22>) Due to the domain’s clear proximity to zoophilia, anyone with a *.zooand.me handle or a *zoo.wtf handle will be added to the mute list.
+9. Akito (@akito.zooand.me) hosts a zoophile podcast and self-identifies as a zoophile, interacting with several people on the mute list: (<https://bsky.app/profile/akito.zooand.me/post/3k46ghzxyqs22>).
 10. ~~ZooFur Faction (@zoo.pics) posts explicit images of IRL animal genitalia.~~ We’ve gotten this account taken down. To anyone who reported them or shared a post calling for them to be reported, thank you! 🎉
 11. 007bistromath (@007bistromath.bsky.social), The Dog Queen (@interestedknot.bsky.social), Ceres Fallen (@ceresfallen.bsky.social), and Akkuriss (@akkuriss.bsky.social) all frequently interact with people on this list and/or openly identify as zoophiles themselves.
 12. Tundru (@tundru.bsky.social) frequently interacts with Cenny, a known zoophile: (<https://twitter.com/Tundru_DireWolf/status/1406032710401892360>) and has been seen deflecting confrontations about the behavior of other known zoophiles to conversations about feral porn when the actual conversation is not strictly about that. For context: the user in question, while not having a Bluesky account that I’m aware of, commissioned porn of their dog being sexually abused by their OC. In this instance, this is distinguishable from normal feral porn because it explicitly referenced a real-life dog. (<https://twitter.com/Sweet_clawz/status/1620104867934273537>)
@@ -184,3 +184,4 @@ Subscribing to this list does not automatically block the people on it; you must
 121. zooey.pub (@zooey.pub) is a zoophile-centric magazine.
 122. Tech (@technostar.bsky.social), Doughnuts (@doughnutzooey.bsky.social), ZetaFoxyFluffs (@zetafoxyfluffs.bsky.social), Salk (@salkott.bsky.social), and yourlocalfxmboy (@yourlocalfxmboy.bsky.social) are open zoophiles.
 123. zenixhyena (@zenixhyena.bsky.social), madhuaka (@madhuaka.bsky.social), and wybranieczwi (@wybranieczwi.bsky.social) are following almost nothing but open zoophiles.
+124. aqua (@aqua.zoo.wtf) is an open zoophile.
