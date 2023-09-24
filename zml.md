@@ -182,5 +182,5 @@ Subscribing to this list does not automatically block the people on it; you must
 119. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
 120. Sukie (@sukie.bsky.social) follows open zoophiles.
 121. zooey.pub (@zooey.pub) is a zoophile-centric magazine.
-122. Tech (@technostar.bsky.social) and Doughnuts (@doughnutzooey.bsky.social) are open zoophiles.
+122. Tech (@technostar.bsky.social), Doughnuts (@doughnutzooey.bsky.social), and ZetaFoxyFluffs (@zetafoxyfluffs.bsky.social) are open zoophiles.
 123. zenixhyena (@zenixhyena.bsky.social), madhuaka (@madhuaka.bsky.social), and wybranieczwi (@wybranieczwi.bsky.social) are following almost nothing but open zoophiles.
