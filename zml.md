@@ -185,3 +185,4 @@ Subscribing to this list does not automatically block the people on it; you must
 122. Tech (@technostar.bsky.social), Doughnuts (@doughnutzooey.bsky.social), ZetaFoxyFluffs (@zetafoxyfluffs.bsky.social), Salk (@salkott.bsky.social), and yourlocalfxmboy (@yourlocalfxmboy.bsky.social) are open zoophiles.
 123. zenixhyena (@zenixhyena.bsky.social), madhuaka (@madhuaka.bsky.social), and wybranieczwi (@wybranieczwi.bsky.social) are following almost nothing but open zoophiles.
 124. aqua (@aqua.zoo.wtf) is an open zoophile.
+125. Kaster (@pissbxtch.bsky.social) and fawnly (@fawnly.bsky.social) follow and are followed exclusively by open and known zoos.
