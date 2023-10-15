@@ -195,4 +195,6 @@ Subscribing to this list does not automatically block the people on it; you must
 131. Storm the Wolfy Zoo (@stormthewolfyzoo.bsky.social) is an open zoophile.
 132. Furry Raiders (@furryraiders.bsky.social) are an alt-right nazifur Telegram group. Its owner, Foxler (@starfoxacefox.bsky.social/@starfoxacefox.furryraiders.org), described dogs as "sexual beings" in a forum reply: (<https://archive.today/1HTrL>), had an account on a now-defunct bestiality forum: (<https://archive.today/vnatQ>), and lists zoophilia as a "Fave" on his F-List: (<https://archive.today/g7GnY>).
 133. ZooKitty (@zookitty.bsky.social), Zippy (@zippyzoop.bsky.social), pupper lover (@zeta-love.bsky.social), catgirl (@somerandomcat.bsky.social), Fridayzoo (@fridayzoowo.bsky.social), and Cadavre (@cadavre.bsky.social) are all open zoophiles.
-135. U the Striped Coyote (@uthecoyote.bsky.social) follows a large amount of open zoophiles.
+134. U the Striped Coyote (@uthecoyote.bsky.social) follows a large amount of open zoophiles.
+135. Zeta Fuzz (@zetafuzz.bsky.social), Zeta Unleashed (@zetaunleashed.bsky.social), Zoo Central Network (@zoocentralnetwork.bsky.social), StrudelX3 (@strudelx3.bsky.social), and Cream Sheef (@creamsheef.bsky.social) are open zoophiles.
+136. Peek (@takeapeekandsee.bsky.social), ShawtyPaws (@shawtypaws.bsky.social), and Pup Zoa (@pupzoa.bsky.social) follow mostly or only open zoophiles.
