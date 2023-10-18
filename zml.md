@@ -7,7 +7,7 @@
 
 ## Information
 
-This mute list automatically mutes people who actively interact with or are zoophiles. Fill out the form at <https://zmlform.heika.dog> to have someone added or request to be removed.
+This mute list automatically mutes zoophiles and people who actively interact with them. Go to <https://zmlform.heika.dog> to submit someone to the list or request to be removed.
 
 _[All relevant links to evidence have been archived on https://archive.today in the event that they go down or change for any reason. Bluesky links are unable to be archived at this time due to requiring a login.]_
 
