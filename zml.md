@@ -214,5 +214,5 @@ Subscribing to this list does not automatically block the people on it; you must
 
 146. Rot (@r0tnch0rd.bsky.social) is an open zoophile.
 147. herder1013 (@herder1013.bsky.social) is a zoophile. Although it's not immediately apparent, they follow a large amount of zoophiles and link to a zoophile-centric Mastodon instance in their bio.
-148. Sinahl Konkon (@sinahl.bsky.social) and noaurway (@noaurway.bsky.social) follow several open zoophiles.
+148. Sinahl Konkon (@sinahl.bsky.social), noaurway (@noaurway.bsky.social), and Edu (@eduprv.bsky.social) follow several open zoophiles.
 149. Wulkern (@wolfphilia.bsky.social) and Zoe (@zoezeta.bsky.social) are open zoophiles.
