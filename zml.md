@@ -215,6 +215,6 @@ Subscribing to this list does not automatically block the people on it; you must
 146. Rot (@r0tnch0rd.bsky.social) is an open zoophile.
 147. herder1013 (@herder1013.bsky.social) is a zoophile. Although it's not immediately apparent, they follow a large amount of zoophiles and link to a zoophile-centric Mastodon instance in their bio.
 148. Sinahl Konkon (@sinahl.bsky.social), noaurway (@noaurway.bsky.social), and Edu (@eduprv.bsky.social) follow several open zoophiles.
-149. Wulkern (@wolfphilia.bsky.social) and Zoe (@zoezeta.bsky.social) are open zoophiles.
+149. Wulkern (@wolfphilia.bsky.social), Zoe (@zoezeta.bsky.social), and Reindeer (@hundilelin.bsky.social) are open zoophiles.
 150. Fairytale (@fairmaiden.bsky.social) frequently interacts with open zoophiles. They said the mute list is just "making people not post it [on Bluesky] so they don't have to see or think about it," and that "people are just gonna post their dogsex content elsewhere:" (<https://imgur.com/a/zbmyfic>).
 151. Alexis Kitt (@alexiskitt.bsky.social) said they support zoophiles and do not see them as criminal and evil: (<https://imgur.com/a/NdZtiZN>)
