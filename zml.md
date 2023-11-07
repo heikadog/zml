@@ -7,11 +7,11 @@
 
 ## Information
 
-This mute list automatically mutes zoophiles and people who actively interact with them. Go to <https://zmlform.heika.dog> to submit someone to the list or request to be removed.
+This list is composed of zoophiles and people who actively interact with them. Go to <https://zmlform.heika.dog> to submit someone to the list or request to be removed.
 
 _[All relevant links to evidence have been archived on https://archive.today in the event that they go down or change for any reason. Bluesky links are unable to be archived at this time due to requiring a login.]_
 
-Some terms need to be defined for the mute list, so here are some useful definitions:
+Some terms need to be defined for the list, so here are some useful definitions:
 
 - "Actively interacting with zoophiles" includes but is not limited to: liking posts relating to, replying to, following, or otherwise explicitly advocating for zoophilia.
   - For instance, simply following or occasionally interacting with someone who's been accused of being a zoophile is not enough to be put on this list; following a large amount of zoophiles, actively interacting with an account which posts content of animals being sexually abused, or directly supporting posts relating to zoophilia is. (If I happen to send you evidence that your mutual is a zoophile and you block me, that is not enough to warrant putting you on the list either.) These stipulations prevent innocent people from being unfairly put on the mute list, as I'm aware these are serious accusations which can ruin a person's reputation and should not be taken lightly.
@@ -22,13 +22,13 @@ To be added to the mute list, candidates should meet at least one of these crite
 1. Anyone who actively interacts with zoophiles, follows a large amount of zoophiles, or is otherwise evidently a zoophile. This includes indicators like having the zeta symbol (ζ) in their bio, or having a handle that's linked to an explicitly zoophile-centric domain name, like \*.zoo.wtf, \*.zoo.and.me, or \*.zooey.pub.
 2. Anyone that has been publicly exposed by a whistleblower for actively interacting with or being a zoophile. This includes alternate accounts, if applicable.
 3. People who are found to make spaces that openly welcome zoophiles, or are otherwise found to participate in conversations which advocate for or admit to zoophilic acts.
-4. Artists who draw feral NSFW art and their supporters will not be added unless there is evidence they actively interact with or are zoophiles. While I don't support NSFW feral art, this mute list is intended to expose people who have been found to support or facilitate harm done against real animals. Despite zoophiles continually using the label as a cover, therians are also not added by default under this same stipulation.
+4. Artists who draw feral NSFW art and their supporters will not be added unless there is evidence they actively interact with or are zoophiles. While I don't support NSFW feral art, this list is intended to expose people who have been found to support or facilitate harm done against real animals. Despite zoophiles continually using the label as a cover, therians are also not added by default under this same stipulation.
 
 You can submit people to the list, request to be removed from the list, or submit feedback for the list or this document here: <https://zmlform.heika.dog>.
 
-People who are added to the mute list will have a disclaimer below their profile that says "Muted by Zoophile Mute List." To use this mute list, select the button at the top that says "Subscribe." (On mobile devices, this button may say "Subscribe & Mute.") To share this list, select the arrow to the right of the Subscribe button.
+When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use this list, select the button at the top that says "Subscribe." And to share this list, select the arrow to the right of the Subscribe button.
 
-Subscribing to this list does not automatically block the people on it; you must do this yourself.
+By selecting "Subscribe," you can mute or block all of the accounts on the list.
 
 ## Evidence
 
