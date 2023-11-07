@@ -217,3 +217,4 @@ Subscribing to this list does not automatically block the people on it; you must
 148. Sinahl Konkon (@sinahl.bsky.social), noaurway (@noaurway.bsky.social), Edu (@eduprv.bsky.social), and Josesk Volpe (@volpejosesk.bsky.social) follow and interact with several open zoophiles.
 149. Fairytale (@fairmaiden.bsky.social) frequently interacts with open zoophiles. They said the mute list is just "making people not post it [on Bluesky] so they don't have to see or think about it," and that "people are just gonna post their dogsex content elsewhere:" (<https://imgur.com/a/zbmyfic>).
 150. Alexis Kitt (@alexiskitt.bsky.social) said they support zoophiles and do not see them as criminal and evil: (<https://imgur.com/a/NdZtiZN>)
+151. Fido (@fidofidelis.bsky.social) mostly follows open zoophiles.
