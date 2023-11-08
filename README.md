@@ -1,12 +1,12 @@
 # Zoophile Mute List GitHub Repo
 
-This is the current home of the Zoophile Mute List, a mute list for Bluesky that automatically mutes zoophiles and people who actively interact with them. This README serves as a directory of sorts, so everything associated with the list is readily accessible. Navigate using the links below.
+This is the current home of the Zoophile Mute List, which is composed of zoophiles and people who actively interact with them. This README serves as a directory of sorts, so everything associated with the list is readily accessible. Navigate using the links below.
 
 - [View and subscribe to the mute list.](https://bsky.app/profile/heika.dog/lists/3k3eg23h7ko2i)
 
-People who are added to the mute list will have a disclaimer below their profile that says "Muted by Zoophile Mute List." To use this mute list, select the button at the top that says "Subscribe." (On mobile devices, this button may say "Subscribe & Mute.") To share this list, select the arrow to the right of the Subscribe button.
+When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use this list, select the button at the top that says "Subscribe." And to share this list, select the arrow to the right of the Subscribe button.
 
-Subscribing to this list does not automatically block the people on it; you must do this yourself.
+By selecting "Subscribe," you can mute or block all of the accounts on the list.
 
 ## Directory
 
