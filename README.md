@@ -14,4 +14,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 
 - [Submit someone to the list, request to be removed, or submit feedback.](https://zmlform.heika.dog)
 
-Because there's already a form to submit accounts to the list, don't submit them as an issue or pull request; submit them at <https://zmlform.heika.dog> instead so your response is kept confidential. Only submit an issue or pull request if you have a suggestion or fix for this GitHub repo itself.
+Because there's already a form to submit accounts to the list and request to be removed, don't submit them as an issue or pull request; submit them at <https://zmlform.heika.dog> instead so your response is kept confidential. Only submit an issue or pull request if you have a suggestion or fix for this GitHub repo itself.
