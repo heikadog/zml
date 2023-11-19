@@ -143,7 +143,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 77. Felicipaws (@felicipaws.bsky.social) supported known zoophile and pedophile Hypnotist Sappho, someone who has admitted to being sexually attracted to animals and groomed minors. They also follow an artist who drew Sappho fanart and followed several open zoophiles: (<https://archive.today/tPgwP>)
 78. Cepheus Konev (@cepheusthepooka.bsky.social) follows known zoophiles like ZooeyDonk, Tekkita, TechRoo, and Akari: (<https://bsky.app/profile/cepheusthepooka.bsky.social/follows>) and lists Zoophila as a "Fave" on their F-List: (<https://archive.today/X7Dfh>)
 79. Kantra (@yeenbutter.bsky.social) follows known zoophiles like Ginfossa, Soren, Akari, and Matuska: (<https://bsky.app/profile/yeenbutter.bsky.social/follows>)
-80. Luna (@luna.feral.army) follows known zoophiles like Muddy Doggo, BirtyFur, Skolth, Nillow, Akari, Cael, Brick, and Abra: (<https://bsky.app/profile/luna.feral.army/follows>)
+80. Luna (@luna.feral.army) follows known zoophiles like Muddy Doggo, BirtyFur, Skolth, Nillow, Akari, Cael, Brick, Abra, PsychedelicYops, Philly Satark, and Lukar: (<https://bsky.app/profile/luna.feral.army/follows>)
 81. Milo Blue (@milobluedog.bsky.social) follows known zoophiles like Cenny, Tundru, Thunder Roo, Tobi, Soren, Kasper Kitten, Cael, BirtyFur, and Akari: (<https://bsky.app/profile/milobluedog.bsky.social/follows>)
 82. Mallory (@malcat.bsky.social) follows known zoophiles like Abra, Akari, Sassafras, Cael, and Soren: (<https://bsky.app/profile/malcat.bsky.social/follows>)
 83. Apollo (@apolloshibe.feral.army) follows known zoophiles like Akari, Abra, Cael, Muddy Doggo, Sassafras, and HateEven: (<https://bsky.app/profile/apolloshibe.feral.army/follows>)
