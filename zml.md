@@ -224,4 +224,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 155. HuskyFortune (@huskyfortune.bsky.social) only follows zoophiles.
 156. MidnightMakers (@midnightmakers.ca) is FrosstFursuits, a fursuit maker who has longstanding ties to Cenny, a known zoophile. Announcement of the rebrand: (<https://archive.today/IgpLW>) Archive of carnalcove's tweet about her, with original images: (<https://archive.today/NAMHN>). She also defended a known zoophile, wild__life, when she admitted to being a zoophile and having taken part in bestiality: (<https://archive.today/U6QrI>).
 157. moteyote/motoryote (@od.dog) defended wild__life, but additionally twisted several academic studies on CSEM into applying to all paraphilias and citing studies that ended up not supporting his claims anyway, as evident from this thread by @ExposeTheFV on Twitter: (<https://archive.today/O4i2C>).
-158. ShiUrx (@shiur.bsky.social) and TranzWolf (@tranzwolf.bsky.social) follow and frequently interact with several open zoophiles.
+158. ShiUrx (@shiur.bsky.social) follows and frequently interacts with open zoophiles.
