@@ -220,3 +220,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 157. moteyote/motoryote (@od.dog) defended wild\_\_life, but additionally twisted several academic studies on CSEM into applying to all paraphilias and citing studies that ended up not supporting his claims anyway, as evident from this thread by @ExposeTheFV on Twitter: (<https://archive.today/O4i2C>).
 158. ShiUrx (@shiur.bsky.social) follows and frequently interacts with open zoophiles.
 159. Dark Violet (@darkviolet.bsky.social) has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
+160. heika.dogfucker (@heikadogfucker.bsky.social) is a "joke" account made with the intent to frame me as a zoophile using Thera's art. If you see this, go report it under "Misleading Account". Thanks.
