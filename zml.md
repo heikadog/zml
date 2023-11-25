@@ -168,7 +168,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 100. Marshall (@marshallthehusky.bsky.social), François (@tieddogs.bsky.social) and RikoTheUmbreon (@rikotheumbreon.bsky.social) are open zoophiles and only follow zoophiles.
 101. Brave Moya (@bravemoya.bsky.social) only follows zoophiles.
 102. Kit (@kittywitty.bsky.social) and Deer (@deernainen.bsky.social) only follow and are followed by open zoophiles.
-103. Ryke (@ryke.bsky.social) is an open zoophile, currently sporting the Greek zeta in their current Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>)
+103. Ryke (@ryke.bsky.social/@rykead.bsky.social) is an open zoophile, currently sporting the Greek zeta in their current Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>)
 104. Felion (@felion.bsky.social) and Trill (@thecatstrill.bsky.social) are open zoophiles.
 105. unknownanybody (@unknownanybody.bsky.social) is mutuals with several open zoophiles: (<https://bsky.app/profile/unknownanybody.bsky.social>).
 106. Dioxi (@co2leggyboi.bsky.social) is KierenShep's sexual partner. They've also followed and flirted with Akari (<https://archive.today/FfAyy>) and Cenny (<https://archive.today/1FyGV>), despite both of them being outed as zoophiles after 2018. They also follow known zoophiles like Kierenshep, Cenny, and Akari.
