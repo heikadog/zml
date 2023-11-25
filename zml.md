@@ -165,7 +165,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 97. Pheo (@pheo.nut.dog) follows known zoophiles like Akari, Cenny, Tundru, Birty, Abra, Cael, Muddy Doggo, and Skolth.
 98. Stryder Dobie (@stryderdobie.bsky.social) follows Tundru, Akari, Cenny, Rai, Dirt Coyote, DangerDoberman, Kit Fox, Dire, Birty, Tekkita, Muddy Doggo, Stormy, Tobi, Bad Doberman, Kasper, MoosePup, and Levstha. Additionally, they've interacted with Akari's cub alt and Tekkita's AD: (<https://archive.today/3MLqP>)
 99. puppyputter (@puppyputter.bsky.social) only follows open zoophiles.
-100. Marshall (@marshallthehusky.bsky.social, François (@tieddogs.bsky.social) and RikoTheUmbreon (@rikotheumbreon.bsky.social) are open zoophiles and only follow zoophiles.
+100. Marshall (@marshallthehusky.bsky.social), François (@tieddogs.bsky.social) and RikoTheUmbreon (@rikotheumbreon.bsky.social) are open zoophiles and only follow zoophiles.
 101. Brave Moya (@bravemoya.bsky.social) only follows zoophiles.
 102. Kit (@kittywitty.bsky.social) and Deer (@deernainen.bsky.social) only follow and are followed by open zoophiles.
 103. Ryke (@ryke.bsky.social) is an open zoophile, currently sporting the Greek zeta in their current Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>)
