@@ -222,4 +222,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 150. Dark Violet (@darkviolet.bsky.social) has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
 151. heika.dogfucker (@heikadogfucker.bsky.social) is a gimmick account made with the intent to frame me as a zoophile using Thera's art. If you see this, go report it under "Misleading Account". Thanks.
 152. RRyder420 (@rryder420.bsky.social) is an open zoophile: (<https://twitter.com/ExposeTheFV/status/1699696123634704721>).
-153. filthy (@filthymutt.bsky.social) is an open zoophile. Assuming it's the same person, this is likely their Twitter account, where they frequently advocate for and defend zoophilia: (<https://twitter.com/fillthymutt>).
+153. filthy (@fillthymutt.bsky.social) is an open zoophile. Assuming it's the same person, this is likely their Twitter account, where they frequently advocate for and defend zoophilia: (<https://twitter.com/fillthymutt>).
