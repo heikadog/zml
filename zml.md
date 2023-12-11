@@ -153,8 +153,8 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 88. Bea (@beazone.net) made a song about wanting to have sex with her dog: (<https://twitter.com/_oayd/status/1679296273852014594>), has gone on the record to defend feral, cub, and loli: (<https://twitter.com/_oayd/status/1679263208958304256>), and made multiple hyper-specific posts fantasizing about zoophilia: (<https://twitter.com/_oayd/status/1679285947089731586>)
 89. Frosty (@frostbitefox.bsky.social) replied to a post about Kieran being a zoophile by defending them: (<https://archive.today/IM1Fv>). They've defended Kieran before, downplaying the fact that the group explicitly allowed zoophiles \*and\* IRL pictures of dogs: (<https://archive.today/zVuLE>), and when pressed on whether they're for or against bestiality, they deflected: (<https://imgur.com/a/yxey0cY>). They also follow and regularly interact with several known zoophiles.
 90. Johabi (@johabi.bsky.social) was pictured in a group photo with Akari, Tekkita, and Shepp: (<https://archive.today/9o36Q>). He's also presumably had IRL contact with Akari's dog, from a mention of Akari's AD that he made for his dog: (<https://archive.today/zJfYF>). Additionally, he follows known zoophiles.
-91. Pheo (@pheo.nut.dog) follows known zoophiles.
-92. Stryder Dobie (@stryderdobie.bsky.social) and puppyputter (@puppyputter.bsky.social) follow open zoopphiles. Additionally, they've interacted with Akari's cub alt and Tekkita's AD: (<https://archive.today/3MLqP>)
+91. Pheo (@pheo.nut.dog) and puppyputter (@puppyputter.bsky.social) follow known zoophiles.
+92. Stryder Dobie (@stryderdobie.bsky.social) follows open zoophiles. Additionally, they've interacted with Akari's cub alt and Tekkita's AD: (<https://archive.today/3MLqP>)
 93. Marshall (@marshallthehusky.bsky.social), François (@tieddogs.bsky.social) and RikoTheUmbreon (@rikotheumbreon.bsky.social) are open zoophiles and only follow zoophiles.
 94. Brave Moya (@bravemoya.bsky.social) only follows zoophiles.
 95. Kit (@kittywitty.bsky.social) and Deer (@deernainen.bsky.social) only follow and are followed by open zoophiles.
