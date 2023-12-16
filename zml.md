@@ -211,3 +211,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 143. RRyder420 (@rryder420.bsky.social) is an open zoophile: (<https://twitter.com/ExposeTheFV/status/1699696123634704721>).
 144. filthy (@fillthymutt.bsky.social) is an open zoophile. This is their Twitter account where they frequently advocate for and defend zoophilia: (<https://twitter.com/fillthymutt>).
 145. Ashe FoxD (@ashefoxd.bsky.social) and Rot (@r0t.bsky.social) are dating Thera, an open zoophile.
+146. Rocket mutt (@redrocketloverdog.bsky.social) posts IRL animal genitalia. Please report the account and its posts if you're able to, this isn't okay and it's a violation of Bluesky's TOS (set your Adult Content settings to "Warn" beforehand if you do, though)
