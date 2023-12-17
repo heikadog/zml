@@ -19,7 +19,7 @@ Some terms need to be defined for the list, so here are some useful definitions:
 
 To be added to the mute list, candidates should meet at least one of these criteria:
 
-1. Anyone who actively interacts with zoophiles, follows a large amount of zoophiles, or is otherwise evidently a zoophile. This includes indicators like having the zeta symbol (ζ) or the star and triangles (◤✦◢) in their bio, or having a handle that's linked to an explicitly zoophile-centric domain name, like \*.zoo.wtf, \*.zoo.and.me, or \*.zooey.pub.
+1. Anyone who actively interacts with zoophiles, follows a large amount of zoophiles, or is otherwise evidently a zoophile. This includes indicators like having the zeta symbol (ζ) in their bio, or having a handle that's linked to an explicitly zoophile-centric domain name, like \*.zoo.wtf, \*.zoo.and.me, or \*.zooey.pub.
 2. Anyone that has been publicly exposed by a whistleblower for actively interacting with or being a zoophile. This includes alternate accounts, if applicable.
 3. People who are found to make spaces that openly welcome zoophiles, or are otherwise found to participate in conversations which advocate for or admit to zoophilic acts.
 4. Artists who draw feral NSFW art and their supporters will not be added unless there is evidence they actively interact with or are zoophiles. While I don't support NSFW feral art, this list is intended to expose people who have been found to support or facilitate harm done against real animals. Despite zoophiles continually using the label as a cover, therians are also not added by default under this same stipulation.
