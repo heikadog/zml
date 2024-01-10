@@ -127,7 +127,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 62. Jade (@jadeeyedwere.bsky.social) only follows and is followed by open zoophiles. Additionally, she's dating an open zoophile.
 63. Fwucky (@fwucky.art) follows several open zoophiles and posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://bsky.app/profile/fwucky.art/post/3k7we66eomz2x>).
 64. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles.
-65. PsychedelicYops (@psychedelicyops.pet) follows several zoophiles, and liked a post from WolfJLupus, an open zoophile: (<https://bsky.app/profile/wolfjlupus.bsky.social/post/3k6tuplkr6l2k>).
+65. PsychedelicYops (@psychedelicyops.pet) follows several closeted zoophiles and liked a post from WolfJLupus, an open zoophile: (<https://archive.ph/TSJ7J>).
 66. void (@puppyvoid.bsky.social) follows several open zoophiles.
 67. JenklinDog (@jenklindog.bsky.social) follows several known and open zoophiles.
 68. ZoroAluna (@zoroaluna.bsky.social), Maple (@mapleden.bsky.social), and darksideofazoo (@darksideofazoo.bsky.social) are open zoophiles.
