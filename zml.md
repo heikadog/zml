@@ -92,7 +92,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 27. HateEven (@hateeven.bsky.social) acts like they're not a zoophile on Twitter, but they let zoophiles follow them :(<https://bsky.app/profile/hateeven.bsky.social/followers>) and they were found not only drawing a profile picture for one, but admitting to being one themselves in a zoophile-centric Telegram group: (<https://twitter.com/ExposeTheFV/status/1614774385336004608>)
 28. Skolth (@skolth.net) follows several known and open zoophiles, and has frequently interacted with Akari on Twitter: (<https://archive.today/t8FV9>).
 29. Tobi (@tobidoge.bsky.social) follows known zoophiles and liked a post from Huskeee, an open zoophile: (<https://bsky.app/profile/huskeee.bsky.social/post/3k5px2jsdxg25/liked-by>).
-30. Heart Chee (@heartchee.bsky.social) is an open zoophile: (<https://bsky.app/profile/heartchee.bsky.social>)
+30. Heart Chee (@heartchee.bsky.social) is an open zoophile.
 31. Kasper (@kasperkitten.bsky.social) follows open zoophiles.
 32. Nillow (@doberthem.bsky.social) follows and is followed by open zoophiles.
 33. ~~Gaypaw (@gaypaw.bsky.social) follows and frequently interacts with zoophiles on Bluesky like DotaWolf, Tarro, and Matuska, and lists zoophilia as a "Yes" on their F-List: (<https://archive.today/KXedf>)~~ This account has been taken down! 🎉
