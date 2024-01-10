@@ -9,7 +9,7 @@
 
 This list is composed of zoophiles and people who actively interact with them. Go to <https://zmlform.heika.dog> to submit someone to the list or request to be removed.
 
-_[All relevant links to evidence have been archived on https://archive.today in the event that they go down or change for any reason. Bluesky links are unable to be archived at this time due to requiring a login.]_
+_[All relevant links to evidence have been archived on https://archive.today in the event that they go down or change for any reason.]_
 
 Some terms need to be defined for the list, so here are some useful definitions:
 
@@ -46,7 +46,6 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
    AkariHusky has a large amount of evidence against him, most of which can be viewed here if you have Telegram: (<https://t.me/AkariHuskyZoophile>) Along with directly supporting zoophilia and being an open zoophile for years, Akari also had an AD dedicated to his dog where he posted explicit bestiality content of the dog. In 2015, he said in a reply that he "wouldn't wish being zoo upon anyone," direct confirmation that he is a zoophile.
 3. _[CW in the first link for explicit nudes. Bestiality content is censored.]_
    Among a mountain of other accusations like calling the act of holding people accountable for zoophilia an "SJW crusade" and liking a post on his AD which linked to a peer-to-peer mirror of bestiality content in 2013 (<https://twitter.com/itsjustathingy/status/1406230343426977793>), Cenny (@cenny.bsky.social/@cennyad.bsky.social) had the zeta symbol in his bio in 2016: (<https://twitter.com/cennyarchive/status/1566884973440811009>) and was caught liking explicit bestiality content on his AD (<https://twitter.com/cennyarchive/status/1566885691170197504>). In addition, he was explicitly mentioned as a zoophile in the zoosadism leaks in 2017: (<https://archive.today/zlA4O>).
-4. Tarro (@tarro.zooey.pub) is an open zoophile. They were seen interacting with Akari: (<https://bsky.app/profile/tarro.zooey.pub/post/3k3cx4o7iz52h>).
 4. Tarro (@tarro.zooey.pub) is an open zoophile. They were seen interacting with Akari: (<https://bsky.app/profile/tarro.zooey.pub/post/3k3cx4o7iz52h>).
 5. Papa Rhino (@paparhino.dad) is a zoophile. I worked on an outing about him with reputable whistleblower ExposeTheFV, linking him to his alt, JDonk (@zooeydonk.bsky.social), and showing he's a zoophile (and has publicly interacted with minors as young as 14): (<https://twitter.com/ExposeTheFV/status/1730851018416771097>). He even liked a reply to JDonk's tweet _about_ JDonk being Rhino: (<https://twitter.com/ExposeTheFV/status/1730851024393691197>).
 6. Soren (@owlkin.art) currently identifies as a “zootherian” on their public channels, including Bluesky: (<https://bsky.app/profile/owlkin.art>) and follows several open zoophiles.
@@ -280,7 +279,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 211. Snowy The Puppy (@snowythepuppy.bsky.social), goldenshep (@goldenshep.bsky.social), vulirinmo (@vulirinmo.bsky.social), Morg (@monsterlayer.bsky.social), Mango (@mangoking.bsky.social), Ezra the Fox (@cute.church), and wlightning245 (@wlightning245.bsky.social) follow open zoophiles.
 212. K9Nomad (@k9nomad.bsky.social) and Quetzal (@quetzalkreep.bsky.social) are open zoophiles.
 213. hothorses (@hothorses.bsky.social), 1moonfoxx (@1moonfoxx.bsky.social), Forest (@vesperthefluff.bsky.social), and Lycaon_Zathura (lycaonzathura.bsky.social) follow open zoophiles.
-214. Rax (@raxrex.bsky.social), ZetaWolf (@zoofurs.net), Sirius GSD (@siriusgsd.bsky.social), and zoosadism (@zoosadism.bsky.social) are open zoophiles.
+214. Rax (@raxrex.bsky.social), ZetaWolf (@zetawolf21.zoofurs.net), Sirius GSD (@siriusgsd.bsky.social), and zoosadism (@zoosadism.bsky.social) are open zoophiles.
 215. Hippie Grandpa (@hippiepappa.bsky.social) follows open zoophiles.
 216. UnusualHorse (@unusualhorse.bsky.social), Kazuma (@kazumathehorse.bsky.social), Debbie (@doglovinposs.bsky.social), Mutt (@knottymutt.bsky.social), and RealGrayWoof (@realgraywoof.bsky.social) are open zoophiles.
 217. wufferz (@wufferz.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.today/bSV84>) and they follow open zoophiles on Bluesky.
@@ -289,3 +288,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 220. Jake Owlsky/Jake Whitetail (@jakeowlsky.bsky.social) used to be an open zoophile: (<https://twitter.com/ExposeTheFV/status/1350403808841527302>), and defended Nighty against EFV: (<https://twitter.com/ExposeTheFV/status/1350573404445790210>). _[Some devices may show the link to EFV's quote-retweet starting as "JakeWhitetail," that's him. He changed his username to JakeOwlsky at some point after this tweet was made.]_ As recently as November 2023, he was interacting with known zoosadist Tekkita's AD, even while no longer having the zeta symbol in his display name: (<https://twitter.com/JakeOwlsky/status/1720501099701137803>). With previously defending Nighty and being an open zoophile just two years ago (and currently being followed by several zoophiles on Twitter), we're comfortable putting him on the list.
 221. MidnightMakers (@midnightmakers.ca) is FrosstFursuits, a fursuit maker who has longstanding ties to Cenny, a known zoophile. Announcement of the rebrand: (<https://archive.today/IgpLW>). Archive of carnalcove's tweet about her, with original images: (<https://archive.today/NAMHN>). She also defended a known zoophile, wild\_\_life, when she admitted to being a zoophile and having taken part in bestiality: (<https://archive.today/U6QrI>).
 222. Steel (@steel4321.bsky.social), Hellfire Inferno (@hellfireinferno.bsky.social), Professional Critter (@crittersauce.bsky.social), yiffme (@yiffme.bsky.social), and Kostvel (@kostvel.wtf) follow open zoophiles.
+223. 1z (@1zooey.bsky.social) is an open zoophile.
