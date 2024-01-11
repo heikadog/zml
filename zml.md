@@ -213,7 +213,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 145. Dr. Solaris Yigson (@solarisyison.bsky.social) and noaurway (@noaurway.bsky.social) follow open zoophiles.
 146. Wulkern (@wolfphilia.bsky.social) and Zoey (@zoeyzetadog.bsky.social) are open zoophiles.
 147. Buddy (@idkbuddy.bsky.social) and Edu (@eduprv.bsky.social) follow open zoophiles.
-148. Reindeer (@hundilelin.bsky.social) is an open zoophile.
+148. Reindeer (@hundilein.bsky.social) is an open zoophile.
 149. Josesk Volpe (@volpejosesk.bsky.social) follows open zoophiles.
 150. Grohiik (@thegrohiik.bsky.social), Ell The Proud Zoo (@ellzeta.bsky.social), Fido (@fidofidelis.bsky.social), and greenglassdog (@greenglassdog.bsky.social) are open zoophiles.
 151. pisps (@pisps.bsky.social), Shadow (@closingdistance.bsky.social), dogknot (@dogknot.bsky.social), Lex the Fox (@alexisvulpes.bsky.social), Silvar the Wuff (@silvarthewuff.bsky.social), skararox (@skararox.bsky.social), and Link (@aorci.bsky.social) follow open zoophiles.
