@@ -258,7 +258,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 190. nyko (@nykowo.bsky.social), Dogsoulmate (@dogsoulmate.bsky.social), Cupid (@sanct.bsky.social), Summutt (@zoosonastralplanes.bsky.social), IcySnowBear (@icysnowmutt.bsky.social), and Lokii (@lokiigalm.bsky.social) are open zoophiles.
 191. Kate (@katebeta.bsky.social) follows open zoophiles.
 192. RainNyte (@rainynyte.bsky.social), Oui (@zeamalia.bsky.social), Harley The Great (@harleythegreat.bsky.social), delta (@shadowkon771.bsky.social), Atlas (@atlasbubble.bsky.social), Novie dog (@stonedshibaa.bsky.social), Junior22 (@junior22.bsky.social), and Lovebug (@lovebugplayz.bsky.social) are open zoophiles.
-193. Salem (@salemsins.bsky.social), Fenrir (@femrir.bsky.social), plusheonpup (@plusheonpup.bsky.social), Choncho (@chonchob.bsky.social), nastysog (@nastysog.bsky.social), duude (@duude.bsky.social), HarterWarter (@harterwarter.bsky.social), Lionnnn (@levbuthorniuwu.bsky.social), Felis (@moonfeline.bsky.social), and Fitik (@fitik.me) follow open zoophiles.
+193. Salem (@salemsins.bsky.social), Fenrir (@femrir.bsky.social), plusheonpup (@plusheonpup.bsky.social), Choncho (@chonchob.bsky.social), nastysog (@nastysog.bsky.social), duude (@duude.bsky.social), HarterWarter (@harterwarter.bsky.social), Lionnnn (@levbuthorniuwu.bsky.social), and Fitik (@fitik.me) follow open zoophiles.
 194. Skydog (@skyk9.bsky.social) is an open zoophile.
 195. GetRaccd (@raccooneggs.bsky.social) follows open zoophiles.
 196. Ashe FoxD (@ashefoxd.bsky.social) is dating Thera, an open zoophile.
