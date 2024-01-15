@@ -291,3 +291,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 223. awholesledteam (@awholesledteam.bsky.social) is an open zoophile. The katakana currently in their bio (ズ) is phonetically pronounced "zu," or "zoo."
 224. Nex (@knottylist.bsky.social) is an open zoophile.
 225. Don't Hug Cacti (@donthugcacti.bsky.social) is ran by a zoophile. There's a document about BlondeFoxy's actions, including how she "lost her true virginity" when she abused her German Shepherd: (<https://twitter.com/qutens_/status/1309627916611850245>). _[We'd like to note that, even though this is a fan account, it was officially sanctioned by the Don't Hug Cacti team, so we're adding it here.]_
+226. Akita (@akitaafterdark.bsky.social) is an open zoophile. 
