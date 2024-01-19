@@ -293,3 +293,6 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 225. Don't Hug Cacti (@donthugcacti.bsky.social) is ran by a zoophile. There's a document about BlondeFoxy's actions, including how she "lost her true virginity" when she abused her German Shepherd: (<https://twitter.com/qutens_/status/1309627916611850245>). _[We'd like to note that, even though this is a fan account, it was officially sanctioned by the Don't Hug Cacti team, so we're adding it here.]_
 226. Akita (@akitaafterdark.bsky.social), dogslut (@dogslut.bsky.social), and archie (@hornyarchie.bsky.social) are open zoophiles.
 227. FortuneFinder (@fortunefinder.bsky.social) and Erin (@noterin.bsky.social) follow open zoophiles.
+228. ylswperv (@ylswperv.bsky.social) and ZooMonkey (@zoomonkey.bsky.social) are open zoophiles.
+229. Ally Pup (@allypup89.bsky.social) is an open zoophile: (<https://twitter.com/allypup89/status/1729216157671195126>).
+230. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile: (<https://archive.today/9ZcFu>).
