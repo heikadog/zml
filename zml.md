@@ -194,7 +194,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 129. Tann (@tannerite.bsky.social) follows open zoophiles.
 130. rogue07187727 (@rogue07187727.bsky.social), Stallion (@shirestallion.bsky.social), Alex (@zratedpup.bsky.social), Mead the Circus Bear (@meadhoneygrizzly.bsky.social), and DeeneTheBear (@deenethebear.bsky.social) are open zoophiles.
 131. Ryker (@paws-and-tail.bsky.social) follows open zoophiles.
-132. Zaims (@zooeyaims.bsky.social) is an open zoophile.
+132. Febbit (@febbitzz.bsky.social) is an open zoophile.
 133. Kai (@bigdumdog.bsky.social), Coyote Colt (@somejohndoe.bsky.social), Mating and Playing (@mating.bsky.social), Totally Not Zooey (@totallynotzooey.bsky.social), GlowyPaws (@glowypaws.bsky.social) are open zoophiles.
 134. bestiality (@bestiality.bsky.social) and Sunkawakan (@sunkawakan.bsky.social) follow open zoophiles.
 135. Blossom (@fl0weringnight.bsky.social) is an open zoophile.
