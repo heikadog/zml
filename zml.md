@@ -273,7 +273,7 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 205. beuterall (@beuterall.bsky.social) follows open zoophiles.
 206. Raine (@raineyote.bsky.social), rainbowkitty (@rainbowkitty.bsky.social), cloacaposter (@cloacaposter.bsky.social), and ZetaYewZoo (@zetauthezoocoyote.bsky.social) are open zoophiles.
 207. regg00 (@regg00.bsky.social) and BasilTheFolf (basilthefolf.bsky.social) follow open zoophiles.
-208. Valence (@valencethedeer.bsky.social), otherwise known as Quantum Kitty, is a known and convicted zoosadist: (<https://archive.ph/wip/gSisX>).
+208. Valence (@valencethedeer.bsky.social), otherwise known as Quantum Kitty, is a known and convicted zoosadist: (<https://archive.today/gSisX>).
 209. Miles (@milesthezshep.bsky.social) is an open zoophile.
 210. Snowy The Puppy (@snowythepuppy.bsky.social), goldenshep (@goldenshep.bsky.social), vulirinmo (@vulirinmo.bsky.social), Morg (@monsterlayer.bsky.social), Mango (@mangoking.bsky.social), Ezra the Fox (@cute.church), and wlightning245 (@wlightning245.bsky.social) follow open zoophiles.
 211. K9Nomad (@k9nomad.zoofurs.net) and Quetzal (@quetzalkreep.bsky.social) are open zoophiles.
