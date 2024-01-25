@@ -296,4 +296,4 @@ By selecting "Subscribe," you can mute or block all of the accounts on the list.
 229. Ally Pup (@allypup89.bsky.social) is an open zoophile: (<https://twitter.com/allypup89/status/1729216157671195126>).
 230. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile according to their Twitter: (<https://archive.today/Xfawd>).
 231. Zackie (@zackieroo.bsky.social) follows open zoophiles.
-232. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social>), and ThatOneLeafy (@zooeyspriggy.bsky.social) are open zoophiles.
+232. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social), and ThatOneLeafy (@zooeyspriggy.bsky.social) are open zoophiles.
