@@ -23,7 +23,10 @@ Some additional information:
 - "Known" zoophiles are people who were outed as zoophiles, while "open" zoophiles embrace the label—these terms are not interchangeable.
 - We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists to the list unless there's evidence they actively interact with or are zoophiles. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
 - All relevant links to evidence are archived on https://archive.today in the event that they go down or change for any reason. Additionally, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
+- We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists to the list unless there's evidence they actively interact with or are zoophiles. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
+- All relevant links to evidence are archived on https://archive.today in the event that they go down or change for any reason. Additionally, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
 
+When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use the list, select the "Subscribe" button towards the top of the list, and to share the list, select the arrow to the right of the Subscribe button.
 When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use the list, select the "Subscribe" button towards the top of the list, and to share the list, select the arrow to the right of the Subscribe button.
 
 By selecting "Subscribe," you can mute or block all of the accounts on the list.
