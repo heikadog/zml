@@ -25,7 +25,6 @@ Some additional information:
 - All relevant links to evidence are archived on https://archive.today in the event that they go down or change for any reason. Additionally, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
 
 When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use the list, select the "Subscribe" button towards the top of the list, and to share the list, select the arrow to the right of the Subscribe button.
-When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use the list, select the "Subscribe" button towards the top of the list, and to share the list, select the arrow to the right of the Subscribe button.
 
 By selecting "Subscribe," you can mute or block all of the accounts on the list.
 
