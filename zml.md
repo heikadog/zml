@@ -293,3 +293,4 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 229. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile according to their Twitter: (<https://archive.today/Xfawd>).
 230. Zackie (@zackieroo.bsky.social) follows open zoophiles.
 231. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), Vandal (@stupidgirlthing.bsky.social), and Extramolestrial (@discipleofasmodeus.bsky.social) are open zoophiles.
+232. Toxic (@baxterartworks.com) follows open and known zoophiles.
