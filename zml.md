@@ -26,8 +26,6 @@ Some additional information:
 
 When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use the list, select the "Subscribe" button towards the top of the list, and to share the list, select the arrow to the right of the Subscribe button.
 
-By selecting "Subscribe," you can mute or block all of the accounts on the list.
-
 ## Evidence
 
 **Content warning:** Many of these links include censored, but still explicit bestiality content—proceed with caution.
