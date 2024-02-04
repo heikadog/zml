@@ -295,3 +295,4 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 231. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), Vandal (@stupidgirlthing.bsky.social), and Extramolestrial (@discipleofasmodeus.bsky.social) are open zoophiles.
 232. Toxic (@baxterartworks.com) follows open and known zoophiles.
 233. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), pheonizooey (@pheonizooey.bsky.social), Rosielynn (@rosielynn.bsky.social), and Perv scalie (@draconariuslazaro.bsky.social) are open zoophiles.
+234. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), and Termina (@terminapwoto.bsky.social) follow open zoophiles.
