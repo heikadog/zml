@@ -297,3 +297,4 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 233. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), pheonizooey (@pheonizooey.bsky.social), Rosielynn (@rosielynn.bsky.social), and Perv scalie (@draconariuslazaro.bsky.social) are open zoophiles.
 234. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Zarky (@zarkyzeta.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
 235. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
+236. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia": (<https://bsky.app/profile/abominablight.bsky.social/post/3kkilrdlnus26>)
