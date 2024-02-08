@@ -198,7 +198,7 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 137. flareup (@flareup.bsky.social) follows open zoophiles.
 138. Bonebringer69 (@bonebringer69.bsky.social), P0rtalW0lf (@p0rtalw0lf.bsky.social), and Xelas_Shep (@xelasshep.bsky.social) are open zoophiles.
 139. Curious Yeen (@curiousyeen.bsky.social) follows open zoophiles.
-140. Stimky Doggo (@stimkydoggo.bsky.social), Louey (@loueyzuitton.bsky.social), and Kalii (@kaliipso.bsky.social) are open zoophiles.
+140. Stimky Doggo (@stimkydoggo.bsky.social) and Kalii (@kaliipso.bsky.social) are open zoophiles.
 141. Cooro (@coororaccoon.bsky.social) follows open zoophiles.
 142. Hypnotist Sappho (@hypnotist-sappho.bsky.social) is an open zoophile and pedophile, but we believe this Bluesky account is LARPing as her. Here's why this account is on the list despite not being Sappho:
 
