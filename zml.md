@@ -298,3 +298,4 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 234. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Zarky (@zarkyzeta.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
 235. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 236. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia": (<https://bsky.app/profile/abominablight.bsky.social/post/3kkilrdlnus26>)
+237. Jamie Sharp (@jamiesharp.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
