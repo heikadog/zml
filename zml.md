@@ -301,3 +301,4 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 237. Jamie Sharp (@jamiesharp.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
 238. MareLover (@marelover.bsky.social) and rosacat (@rosacat.bsky.social) are open zoophiles.
 239. Selindrila Shoras (@selindrila.bsky.social) is an open zoophile: (<https://archive.today/qZRFB>).
+240. aves (@ornithophile.bsky.social) is an open zoophile.
