@@ -302,3 +302,5 @@ When you subscribe to the list, accounts on the list will have a disclaimer belo
 238. MareLover (@marelover.bsky.social) and rosacat (@rosacat.bsky.social) are open zoophiles.
 239. Selindrila Shoras (@selindrila.bsky.social) is an open zoophile: (<https://archive.today/qZRFB>).
 240. aves (@ornithophile.bsky.social), The lover (@rslima.bsky.social), Tariaaa (@tariaaa.bsky.social), zedazoup (@zedazoup.bsky.social), and Clovii (@clxvz.bsky.social) are open zoophiles.
+241. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
+242. unno (@tokolulderan.bsky.social), Recker (@reckeryote.bsky.social), Maldrasen (@maldrasen.bsky.social), Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), and Torch (@torchhd.bsky.social) follow open zoophiles.
