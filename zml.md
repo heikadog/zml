@@ -7,9 +7,14 @@
 
 ## Information
 
-This moderation list is composed of zoophiles and people who actively interact with them, and this document with information and evidence is provided for transparency. You can submit people to the list, request to be removed from the list, or submit feedback here: <https://zmlform.heika.dog>.
 
-To be added to the list, candidates should meet at one or more of these criteria:
+This moderation list for Bluesky is composed of zoophiles and people who actively interact with them, and this document with information and evidence is provided for transparency. View and subscribe to the mute list: <https://bsky.app/profile/heika.dog/lists/3k3eg23h7ko2i>. 
+
+To mute or block the accounts on the list, select "Subscribe" at the upper-right corner of the list page. When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. 
+
+You can submit accounts to the list, request to be removed from the list, or submit feedback here: <https://zmlform.heika.dog>. To share this list, select the arrow to the right of the Subscribe button.
+
+To be added to the list, candidates should meet at least one or more of these criteria:
 
 1. Publicly identifying as a zoophile. This includes having indicators like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀) on their profile, or having a handle that's linked to an explicitly zoophile-centric domain name like \*.zoo.wtf, \*.zoo.and.me, \*.zooey.pub, or \*.zoofurs.net.
 2. Being publicly exposed by a whistleblower for being a zoophile.
@@ -23,8 +28,6 @@ Some additional information:
 - "Known" zoophiles are people who were outed as zoophiles, while "open" zoophiles embrace the label—these terms are not interchangeable.
 - We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists to the list unless there's evidence they actively interact with or are zoophiles. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
 - All relevant links to evidence are archived on https://archive.today in the event that they go down or change for any reason. Additionally, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
-
-When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use the list, select the "Subscribe" button towards the top of the list, and to share the list, select the arrow to the right of the Subscribe button.
 
 ## Evidence
 
