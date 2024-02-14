@@ -4,9 +4,9 @@ This is the current home of the Zoophile Mute List, which is composed of zoophil
 
 - [View and subscribe to the mute list.](https://bsky.app/profile/heika.dog/lists/3k3eg23h7ko2i)
 
-When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To use this list, select the button at the top that says "Subscribe." And to share this list, select the arrow to the right of the Subscribe button.
+By selecting "Subscribe" at the upper-right corner, you can choose to mute or block all of the accounts on the list. 
 
-By selecting "Subscribe," you can mute or block all of the accounts on the list.
+When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. And to share this list, select the arrow to the right of the Subscribe button.
 
 ## Directory
 
