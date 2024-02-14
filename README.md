@@ -6,7 +6,7 @@ This is the current home of the Zoophile Mute List, which is composed of zoophil
 
 By selecting "Subscribe" at the upper-right corner, you can choose to mute or block all of the accounts on the list. 
 
-When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. And to share this list, select the arrow to the right of the Subscribe button.
+When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To share this list, select the arrow to the right of the Subscribe button.
 
 ## Directory
 
