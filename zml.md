@@ -255,7 +255,7 @@ Some additional information:
 188. CoffeeDraggy (@coffeedraggy.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its display name: (<https://archive.today/upLFd>) and they follow open zoophiles on Bluesky.
 189. nyko (@nykowo.bsky.social), Dogsoulmate (@dogsoulmate.bsky.social), Cupid (@sanct.bsky.social), Summutt (@zoosonastralplanes.bsky.social), IcySnowBear (@icysnowmutt.bsky.social), and Lokii (@lokiigalm.bsky.social) are open zoophiles.
 190. Kate (@katebeta.bsky.social) follows open zoophiles.
-191. RainNyte (@rainynyte.bsky.social), Oui (@zeamalia.bsky.social), Harley The Great (@harleythegreat.bsky.social), delta (@shadowkon771.bsky.social), Atlas (@atlasbubble.bsky.social), Novie dog (@stonedshibaa.bsky.social), Junior22 (@junior22.bsky.social), and Lovebug (@lovebugplayz.bsky.social) are open zoophiles.
+191. RainNyte (@rainynyte.bsky.social), Oui (@zeamalia.bsky.social), Harley The Great (@harleythegreat.bsky.social), malice (@zooeyfreeform.bsky.social), Atlas (@atlasbubble.bsky.social), Novie dog (@stonedshibaa.bsky.social), Junior22 (@junior22.bsky.social), and Lovebug (@lovebugplayz.bsky.social) are open zoophiles.
 192. Salem (@salemsins.bsky.social), Fenrir (@femrir.bsky.social), plusheonpup (@plusheonpup.bsky.social), Choncho (@chonchob.bsky.social), nastysog (@nastysog.bsky.social), duude (@duude.bsky.social), HarterWarter (@harterwarter.bsky.social), Lionnnn (@levbuthorniuwu.bsky.social), and Fitik (@fitik.me) follow open zoophiles.
 193. Skydog (@skyk9.bsky.social) is an open zoophile.
 194. GetRaccd (@raccooneggs.bsky.social) follows open zoophiles.
