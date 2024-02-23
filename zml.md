@@ -25,7 +25,7 @@ Some additional information:
 
 - It's important to note that simply following or occasionally interacting with someone who was accused of being a zoophile is not enough to be put on this list. When it comes to accounts who are accused of actively interacting with zoophiles, we look for a clear, habitual pattern of one or more of the above criteria before we add them. These stipulations prevent innocent people from being unfairly put on the list, as we're aware these are serious accusations which can ruin a person's reputation and should not be taken lightly.
 - "Known" zoophiles are people who were outed as zoophiles, while "open" zoophiles embrace the label—these terms are not interchangeable.
-- We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists to the list unless there's evidence they actively interact with or are zoophiles. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
+- We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists or their supporters to the list unless there's evidence they actively interact with or are zoophiles. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
 - All relevant links to evidence are archived on https://archive.today in the event that they go down or change for any reason. Additionally, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
 
 ## Evidence
