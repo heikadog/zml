@@ -310,4 +310,5 @@ Some additional information:
 244. Fley the Dragon (@fleythedragon.bsky.social) is an open zoophile.
 245. Billie Bust Up (@biliiebustup.bsky.social) follows open zoophiles. _[We'd like to clarify that this is a parody account that follows open zoophiles and not the real Billie Bust Up Bluesky account.]_
 246. Hakan (@hakanwillnom.bsky.social) is an alt of Kero The Wolf, a known necrozoosadist with ties to SnakeThing and Tane. Here's two threads with proof that this is actually Kero: (1: <https://twitter.com/KeroArchive/status/1756107775568908601> / 2: <https://twitter.com/DogpatchPress/status/1756253402492023255>).
-247. NotMyMainAccount (@notmymainaccount.bsky.social) is an open zoophile.
+247. NotMyMainAccount (@notmymainaccount.bsky.social) and Nox (@zoosafe.bsky.social) are open zoophiles.
+248. Paul (@webboy42.bsky.social) is an open zoophile according to his Twitter: (<https://archive.today/EWZoF>).
