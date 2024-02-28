@@ -292,22 +292,25 @@ Some additional information:
 226. Akita (@akitaafterdark.bsky.social), dogslut (@dogslut.bsky.social), and archie (@hornyarchie.bsky.social) are open zoophiles.
 227. FortuneFinder (@fortunefinder.bsky.social) and Erin (@noterin.bsky.social) follow open zoophiles.
 228. ylswperv (@ylswperv.bsky.social) and ZooMonkey (@zoomonkey.bsky.social) are open zoophiles.
-229. Ally Pup (@allypup89.bsky.social) is an open zoophile: (<https://twitter.com/allypup89/status/1729216157671195126>).
-230. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile according to their Twitter: (<https://archive.today/Xfawd>).
-231. Zackie (@zackieroo.bsky.social) follows open zoophiles.
-232. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), Vandal (@stupidgirlthing.bsky.social), and Extramolestrial (@discipleofasmodeus.bsky.social) are open zoophiles.
-233. Toxic (@baxterartworks.com) follows open and known zoophiles.
-234. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), pheonizooey (@pheonizooey.bsky.social), Rosielynn (@rosielynn.bsky.social), and Perv scalie (@draconariuslazaro.bsky.social) are open zoophiles.
-235. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Zarky (@zarkyzeta.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
-236. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
-237. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia": (<https://bsky.app/profile/abominablight.bsky.social/post/3kkilrdlnus26>)
-238. Jamie Sharp (@jamiesharp.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
-239. MareLover (@marelover.bsky.social) and rosacat (@rosacat.bsky.social) are open zoophiles.
-240. Selindrila Shoras (@selindrila.bsky.social) is an open zoophile: (<https://archive.today/qZRFB>).
-241. aves (@ornithophile.bsky.social), The lover (@rslima.bsky.social), Tariaaa (@tariaaa.bsky.social), zedazoup (@zedazoup.bsky.social), and Clovii (@clxvz.bsky.social) are open zoophiles.
-242. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
-243. unno (@tokolulderan.bsky.social), Recker (@reckeryote.bsky.social), Maldrasen (@maldrasen.bsky.social), Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), Torch (@torchhd.bsky.social), night788 (@night788.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), alabasterdized (@alabasterdized.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
-244. Fley the Dragon (@fleythedragon.bsky.social) is an open zoophile.
-245. Billie Bust Up (@biliiebustup.bsky.social) follows open zoophiles. _[We'd like to clarify that this is a parody account that follows open zoophiles and not the real Billie Bust Up Bluesky account.]_
-246. Hakan (@hakanwillnom.bsky.social) is an alt of Kero The Wolf, a known necrozoosadist with ties to SnakeThing and Tane. Here's two threads with proof that this is actually Kero: (1: <https://twitter.com/KeroArchive/status/1756107775568908601> / 2: <https://twitter.com/DogpatchPress/status/1756253402492023255>).
-247. NotMyMainAccount (@notmymainaccount.bsky.social) is an open zoophile.
+229. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile according to their Twitter: (<https://archive.today/Xfawd>).
+230. Zackie (@zackieroo.bsky.social) follows open zoophiles.
+231. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), Vandal (@stupidgirlthing.bsky.social), and Extramolestrial (@discipleofasmodeus.bsky.social) are open zoophiles.
+232. Toxic (@baxterartworks.com) follows open and known zoophiles.
+233. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), pheonizooey (@pheonizooey.bsky.social), Rosielynn (@rosielynn.bsky.social), and Perv scalie (@draconariuslazaro.bsky.social) are open zoophiles.
+234. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Zarky (@zarkyzeta.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
+235. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
+236. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia": (<https://bsky.app/profile/abominablight.bsky.social/post/3kkilrdlnus26>)
+237. Jamie Sharp (@jamiesharp.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
+238. MareLover (@marelover.bsky.social) and rosacat (@rosacat.bsky.social) are open zoophiles.
+239. Selindrila Shoras (@selindrila.bsky.social) is an open zoophile: (<https://archive.today/qZRFB>).
+240. aves (@ornithophile.bsky.social), The lover (@rslima.bsky.social), Tariaaa (@tariaaa.bsky.social), zedazoup (@zedazoup.bsky.social), and Clovii (@clxvz.bsky.social) are open zoophiles.
+241. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
+242. unno (@tokolulderan.bsky.social), Recker (@reckeryote.bsky.social), Maldrasen (@maldrasen.bsky.social), Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), Torch (@torchhd.bsky.social), night788 (@night788.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), alabasterdized (@alabasterdized.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
+243. Fley the Dragon (@fleythedragon.bsky.social) is an open zoophile.
+244. Billie Bust Up (@biliiebustup.bsky.social) follows open zoophiles. _[We'd like to clarify that this is a parody account that follows open zoophiles and not the real Billie Bust Up Bluesky account.]_
+245. Hakan (@hakanwillnom.bsky.social) is an alt of Kero The Wolf, a known necrozoosadist with ties to SnakeThing and Tane. Here's two threads with proof that this is actually Kero: (1: <https://twitter.com/KeroArchive/status/1756107775568908601> / 2: <https://twitter.com/DogpatchPress/status/1756253402492023255>).
+246. NotMyMainAccount (@notmymainaccount.bsky.social) is an open zoophile.
+247. Ally Pup (@allypup89.zoofurs.net) is an open zoophile: (<https://twitter.com/allypup89/status/1729216157671195126>).
+248. FoxVirus (@vulpuscarnis.bsky.social) and mewkittythezoo (@mewkittythezoo.bsky.social) are open zoophiles.
+249. Swifty the Shrew (@menyku.bsky.social) is an open zoophile. This is an archive of a previous callout on xem which shows "zoophile" in xyr bio: (<https://archive.today/j8fbi>).
+250. Michelle (@michellebirb.bsky.social) follows open zoophiles, notably including "M" for "MAP" (minor-attracted person) and "Z" for "zoophile" in their bio as people who are "welcome". 
