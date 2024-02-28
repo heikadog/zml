@@ -25,7 +25,7 @@ Some additional information:
 
 - It's important to note that simply following or occasionally interacting with someone who was accused of being a zoophile is not enough to be put on this list. When it comes to accounts who are accused of actively interacting with zoophiles, we look for a clear, habitual pattern of one or more of the above criteria before we add them. These stipulations prevent innocent people from being unfairly put on the list, as we're aware these are serious accusations which can ruin a person's reputation and should not be taken lightly.
 - "Known" zoophiles are people who were outed as zoophiles, while "open" zoophiles embrace the label—these terms are not interchangeable.
-- We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists to the list unless there's evidence they actively interact with or are zoophiles. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
+- We recognize that drawing or supporting feral NSFW isn't condoning zoophilia by default, so we don't add feral NSFW artists or their supporters to the list unless there's evidence they are zoophiles or actively interact with them. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
 - All relevant links to evidence are archived on https://archive.today in the event that they go down or change for any reason. Additionally, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
 
 ## Evidence
@@ -167,7 +167,7 @@ Some additional information:
 104. zooey.pub (@zooey.pub) is a zoophile-centric magazine.
 105. Tech (@technostar.bsky.social) and Doughnuts (@doughnutzooey.bsky.social) are open zoophiles.
 106. zenixhyena (@zenixhyena.bsky.social) and madhuaka (@madhuaka.bsky.social) follow open zoophiles.
-107. ZetaFoxyFluffs (@zetafoxyfluffs.bsky.social), Salk (@salkott.bsky.social), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
+107. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), Salk (@salkott.bsky.social), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
 108. Wybraniec (@wybranieczwi.bsky.social) is an open zoophile: (<https://archive.today/L2zHl>)
 109. Kaster (@pissbxtch.bsky.social) and fawnly (@fawnly.bsky.social) follow open zoophiles.
 110. Bear Huzk (@bearhuzk.bsky.social) is an open zoophile.
@@ -253,7 +253,7 @@ Some additional information:
 187. Sparkz (@sparkzvultrix.bsky.social) follows open zoophiles.
 188. riley (@rileywoof.bsky.social) and CreamAnimal (@nutsluttydog.bsky.social) are open zoophiles.
 189. CoffeeDraggy (@coffeedraggy.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its display name: (<https://archive.today/upLFd>) and they follow open zoophiles on Bluesky.
-190. nyko (@nykowo.bsky.social), Dogsoulmate (@dogsoulmate.bsky.social), Cupid (@sanct.bsky.social), Summutt (@zoosonastralplanes.bsky.social), IcySnowBear (@icysnowmutt.bsky.social), and Lokii (@lokiigalm.bsky.social) are open zoophiles.
+190. nyko (@nykowo.bsky.social), Dogsoulmate (@dogsoulmate.bsky.social), Ember (@sanct.bsky.social), Summutt (@zoosonastralplanes.bsky.social), IcySnowBear (@icysnowmutt.bsky.social), and Lokii (@lokiigalm.bsky.social) are open zoophiles.
 191. Kate (@katebeta.bsky.social) follows open zoophiles.
 192. RainNyte (@rainynyte.bsky.social), Oui (@zeamalia.bsky.social), Harley The Great (@harleythegreat.bsky.social), malice (@zooeyfreeform.bsky.social), Atlas (@atlasbubble.bsky.social), Novie dog (@stonedshibaa.bsky.social), Junior22 (@junior22.bsky.social), and Lovebug (@lovebugplayz.bsky.social) are open zoophiles.
 193. Salem (@salemsins.bsky.social), Fenrir (@femrir.bsky.social), plusheonpup (@plusheonpup.bsky.social), Choncho (@chonchob.bsky.social), nastysog (@nastysog.bsky.social), duude (@duude.bsky.social), HarterWarter (@harterwarter.bsky.social), Lionnnn (@levbuthorniuwu.bsky.social), and Fitik (@fitik.me) follow open zoophiles.
