@@ -315,4 +315,4 @@ Some additional information:
 249. Swifty the Shrew (@menyku.bsky.social) is an open zoophile. This is an archive of a previous callout on xem which shows "zoophile" in xyr bio: (<https://archive.today/j8fbi>).
 250. Michelle (@michellebirb.bsky.social) follows open zoophiles, notably including "M" for "MAP" (minor-attracted person) and "Z" for "zoophile" in their bio as people who are "welcome".
 251. Tori Takara (@toritakara.bsky.social) follows and interacts with open zoophiles.
-252. Fitzgerald (@fitzetagerald.bsky.social) is an open zoophile.
+252. Fitzgerald (@fitzetagerald.bsky.social) and Dog (@dogalongtherock.bsky.social) are open zoophiles.
