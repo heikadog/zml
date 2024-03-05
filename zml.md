@@ -319,4 +319,4 @@ Some additional information:
 253. Tori (@torivlt.bsky.social) follows and interacts with open zoophiles.
 254. Fitzgerald (@fitzetagerald.bsky.social), Dog (@dogalongtherock.bsky.social), and Theo Strypetail (@theostrypetail.bsky.social) are open zoophiles.
 255. justaproudtherian (@justaproudtherian.bsky.social) follows Kero and an open zoophile. Notably, when someone suggested more zoophiles should be banned off Bluesky, they asked, "Why? why would you want that?": (<https://archive.today/jvoy2>)
-256. Ren_On_Paws (@renonpaws.bsky.social) and Darth Riolu (@darthcuddle.bsky.social) are open zoophiles.
+256. Ren_On_Paws (@renonpaws.bsky.social), Darth Riolu (@darthcuddle.bsky.social), Dragon (@dragonpath.bsky.social), Castron (@castronexs.bsky.social), dylan (@dylanthefemzoo.bsky.social), and sigma (@sigmathezeta.bsky.social) are open zoophiles.
