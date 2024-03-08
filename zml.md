@@ -116,7 +116,7 @@ Some additional information:
 53. Dirt Coyote (@dirtcoyote.bsky.social) was found following the previously-mentioned bestiality account, @olHowlnGrowl, on their private AD: (<https://archive.today/rYDCV>) and infamously said "please do not forget me" in response to someone compiling screenshots of people who supported known zoophile Wild_Life: (<https://archive.today/RtNJw>). They also follow known zoophiles.
 54. Stripeybutt (@stripeybutt.bsky.social) had an account on a now-defunct bestiality forum under the name "Streakthetiger": (<https://archive.today/euCvd>) Their LiveJournal showed a tiger with green hair under this alias: (<https://archive.today/tt1a>) and their FurAffinity shows the same tiger with a different hair color: _[CW for NSFW content.]_ (<https://archive.today/VWvNV>)
 55. Kane (@canidliker.bsky.social) is an open zoophile.
-56. Kharrs (@kharrs.bsky.social) is mutuals with an open zoophile and is only followed by open zoophiles.
+56. Kharrs (@kharrs.bsky.social)'s only follow is an open zoophile.
 57. RoxyMoxye (@roxymoxye.bsky.social), bear (@davidbear.bsky.social), Woofingfox (@woofingfox.bsky.social), and Thunder Roodog (@thunderroo.bsky.social) follow and interact with open zoophiles.
 58. Rox (@roxanathewolf.bsky.social) is an open zoophile.
 59. Jade (@jadeeyedwere.bsky.social) only follows zoophiles. Additionally, she's dating an open zoophile.
