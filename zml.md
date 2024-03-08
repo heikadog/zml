@@ -119,7 +119,7 @@ Some additional information:
 56. Kharrs (@kharrs.bsky.social) is mutuals with an open zoophile and is only followed by open zoophiles.
 57. RoxyMoxye (@roxymoxye.bsky.social), bear (@davidbear.bsky.social), Woofingfox (@woofingfox.bsky.social), and Thunder Roodog (@thunderroo.bsky.social) follow and interact with open zoophiles.
 58. Rox (@roxanathewolf.bsky.social) is an open zoophile.
-59. Jade (@jadeeyedwere.bsky.social) only follows and is followed by open zoophiles. Additionally, she's dating an open zoophile.
+59. Jade (@jadeeyedwere.bsky.social) only follows zoophiles. Additionally, she's dating an open zoophile.
 60. Valais (@valais.bsky.social) follows several open zoophiles and posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
 61. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles.
 62. PsychedelicYops (@psychedelicyops.pet) follows several closeted zoophiles and liked a post from WolfJLupus, an open zoophile: (<https://archive.today/TSJ7J>).
@@ -154,7 +154,7 @@ Some additional information:
 91. Dioxi (@co2leggyboi.bsky.social) is KierenShep's sexual partner. They've also followed and flirted with Akari (<https://archive.today/FfAyy>) and Cenny (<https://archive.today/1FyGV>), despite both of them being outed as zoophiles after 2018. They also follow known zoophiles like Kierenshep, Cenny, and Akari.
 92. Tekfox (@tekfox.bsky.social) and Tuaolo (@tuaolothejag.bsky.social), along with Dire, were outed as zoophiles and pictured at a ski meet with known zoophile Akari: (<https://twitter.com/ConStaffWatch/status/1399573940054347778>).
 93. Zooier Than Thou (@zoo.wtf) is a zoophile-centric podcast.
-94. Adramedes (@adramedes.bsky.social) only follows and is followed by open zoophiles. Additionally, they run a zoophile-centric Telegram group, as evident from their Twitter: (<https://twitter.com/adramedes>).
+94. Adramedes (@adramedes.bsky.social) only follows zoophiles. Additionally, they run a zoophile-centric Telegram group, as evident from their Twitter: (<https://twitter.com/adramedes>).
 95. Mika (@vixencore.bsky.social) is an open zoophile. In 2022, in response to someone ripping up zoophile-centric stickers, she said "we'll put up more:" (<https://archive.today/gbkPT>) And despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry evens because of how open she was about being a zoophile: (<https://archive.today/nt2gM>). Additionally, she liked posts from open zoophiles like Heart Chee: (<https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s> / <https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s/liked-by>) and Blethyn: (<https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j> / <https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j/liked-by>). She also follows open zoophiles like Soren and Thera.
 96. Kaie Yote (@kaieyote.bsky.social) follows known and open zoophiles. Additionally, they bought a badge from Birtyfur: (<https://bsky.app/profile/kaieyote.bsky.social/post/3k6r6bz737726>) who frequently draws icons for and publicly associates with zoophiles: (<https://twitter.com/ExposeTheFV/status/1684853358593798144>).
 97. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
