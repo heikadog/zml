@@ -311,9 +311,8 @@ Some additional information:
 245. FoxVirus (@vulpuscarnis.bsky.social) and mewkittythezoo (@mewkittythezoo.bsky.social) are open zoophiles.
 246. Swifty the Shrew (@menyku.bsky.social) is an open zoophile. This is an archive of a previous callout on xem which shows "zoophile" in xyr bio: (<https://archive.today/j8fbi>).
 247. Michelle (@michellebirb.bsky.social) follows open zoophiles, notably including "M" for "MAP" (minor-attracted person) and "Z" for "zoophile" in their bio as people who are "welcome".
-248. Tori (@torivlt.bsky.social) follows and interacts with open zoophiles.
-249. Fitzgerald (@fitzetagerald.bsky.social), Dog (@dogalongtherock.bsky.social), and Theo Strypetail (@theostrypetail.bsky.social) are open zoophiles.
-250. justaproudtherian (@justaproudtherian.bsky.social) follows Kero and an open zoophile. Notably, when someone suggested more zoophiles should be banned off Bluesky, they asked, "Why? why would you want that?": (<https://archive.today/jvoy2>)
-251. Ren_On_Paws (@renonpaws.bsky.social), Darth Riolu (@darthcuddle.bsky.social), Dragon (@dragonpath.bsky.social), Castron (@castronexs.bsky.social), dylan (@dylanthefemzoo.bsky.social), Sigma (@sigmathezeta.bsky.social), Pengyyy (@pengyyy.bsky.social), Sebastian (@puppylove13.bsky.social), Saphire (@saphirefluff.bsky.social), Astro (@astrothemap.bsky.social), Lord Altair (@sporealtair.bsky.social), knottyfox (@knottyfox.bsky.social), knottyk (@knottyk.bsky.social), and Lila (@lila6464.bsky.social) are open zoophiles.
-252. Yen (@anarchopuppygirl.bsky.social) follows open zoophiles.
-253. echo (@pupslut.bsky.social), ottrboii86 (@ottrboi86.bsky.social), and twittersecks (@twittersecks.bsky.social) are open zoophiles.
+248. Fitzgerald (@fitzetagerald.bsky.social), Dog (@dogalongtherock.bsky.social), and Theo Strypetail (@theostrypetail.bsky.social) are open zoophiles.
+249. justaproudtherian (@justaproudtherian.bsky.social) follows Kero and an open zoophile. Notably, when someone suggested more zoophiles should be banned off Bluesky, they asked, "Why? why would you want that?": (<https://archive.today/jvoy2>)
+250. Ren_On_Paws (@renonpaws.bsky.social), Darth Riolu (@darthcuddle.bsky.social), Dragon (@dragonpath.bsky.social), Castron (@castronexs.bsky.social), dylan (@dylanthefemzoo.bsky.social), Sigma (@sigmathezeta.bsky.social), Pengyyy (@pengyyy.bsky.social), Sebastian (@puppylove13.bsky.social), Saphire (@saphirefluff.bsky.social), Astro (@astrothemap.bsky.social), Lord Altair (@sporealtair.bsky.social), knottyfox (@knottyfox.bsky.social), knottyk (@knottyk.bsky.social), and Lila (@lila6464.bsky.social) are open zoophiles.
+251. Yen (@anarchopuppygirl.bsky.social) follows open zoophiles.
+252. echo (@pupslut.bsky.social), ottrboii86 (@ottrboi86.bsky.social), and twittersecks (@twittersecks.bsky.social) are open zoophiles.
