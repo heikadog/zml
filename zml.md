@@ -318,3 +318,4 @@ Some additional information:
 252. echo (@pupslut.bsky.social) and ottrboii86 (@ottrboi86.bsky.social) are open zoophiles.
 253. twittersecks (@twittersecks.bsky.social) is an open zoophile: (<https://bsky.app/profile/twittersecks.bsky.social/post/3kdw35heys22p>)
 254. TehAwesomestKitteh (@tehawesomestkit.bsky.social) is an open zoophile: (<https://bsky.app/profile/tehawesomestkit.bsky.social/post/3koaep3cdig26>)
+255. Febrie (@febrie.bsky.social) said LGBTQIA+ people are "the same as their [oppressors] if they don't accept zoophiles: (<https://bsky.app/profile/febrie.bsky.social/post/3kodrq7o5jk2x>) and that "anti zoophiles literally [acknowledge] in their memes that their hate of zoos comes from their own self hatred": (<https://bsky.app/profile/febrie.bsky.social/post/3kof7qflcd22q>)
