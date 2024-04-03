@@ -135,7 +135,7 @@ Some additional information:
 72. Werel Wolf (@werelwolf.bsky.social) follows several known and open zoophiles.
 73. Murphy (@bitchmurph.bsky.social) is an open zoophile.
 74. Anarcho-Mutt (@anarcho-mutt.bsky.social) only follows and is mutuals with an open zoophile.
-75. Kieran/Homphs (@hom.ph) moderated a Telegram group that claimed it was "zoo-friendly" and welcomed open zoophiles: (<https://twitter.com/ExposeTheFV/status/1675482249469497344>). Their rules directly said this: (<https://web.archive.org/web/20230703012956/https://foxyonline.com/WetFeralsRules.html>).
+75. Kieran/Homphs (@hom.ph) moderated a Telegram group that claimed it was "zoo-friendly" and welcomed open zoophiles: (<https://twitter.com/ExposeTheFV/status/1675482249469497344>). Their rules directly said this: (<https://archive.today/8CKx3>).
 76. Kiba (@feraldog.bsky.social) mostly follows zoophiles.
 77. Sheppfox (@sheppfox.bsky.social) was seen photographed with Tekkita and Akari in a group photo: (<https://archive.today/9o36Q>) and follows other known zoophiles like Kit Fox, Kasper Kitten, Tobi, Stormy, Stripeybutt, Cenny, and Tundru. He also frequently interacted with the AD Akari made for his dog which showed his dog's genitalia: (<https://archive.today/g9wXM>). They seemed to be roommates as recently as 2020, when Shepp and Akari bought a camper together: (<https://archive.today/JZqyl>).
 78. Bea (@beazone.net) made a song about wanting to have sex with her dog: (<https://twitter.com/_oayd/status/1679296273852014594>), has gone on the record to defend feral, cub, and loli: (<https://twitter.com/_oayd/status/1679263208958304256>), and made multiple hyper-specific posts fantasizing about zoophilia: (<https://twitter.com/_oayd/status/1679285947089731586>)
