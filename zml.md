@@ -160,7 +160,7 @@ Some additional information:
 97. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
 98. Sukie (@sukie.bsky.social) follows open zoophiles.
 99. zooey.pub (@zooey.pub) is a zoophile-centric magazine.
-100. Tech (@technostar.bsky.social) and Doughnuts (@doughnutzooey.bsky.social) are open zoophiles.
+100. Doughnuts (@doughnutzooey.bsky.social) is an open zoophile.
 101. zenixhyena (@zenixhyena.bsky.social) and madhuaka (@madhuaka.bsky.social) follow open zoophiles.
 102. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), Salk (@salkott.bsky.social), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
 103. Wybraniec (@wybranieczwi.bsky.social) is an open zoophile: (<https://archive.today/L2zHl>)
