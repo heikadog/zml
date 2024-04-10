@@ -194,7 +194,7 @@ Some additional information:
 131. Queer-Dog Researcher (@theyoungtourist.bsky.social), BeePZ (@beepz.bsky.social), Nieve Rosa (@robinna.bsky.social), ChastityBear (@chastitybear.bsky.social), mrdaddypossum (@mrdaddypossum.bsky.social), and Somr (@somersaet.bsky.social) follow open zoophiles.
 132. Fantescatom (@fantescatom.bsky.social), Sophie (@olio.bsky.social), 6pm (@6pm.bsky.social), and ZooCat (@zoocat.bsky.social) are open zoophiles.
 133. flareup (@flareup.bsky.social) follows open zoophiles.
-134. Bonebringer69 (@bonebringer69.bsky.social), P0rtalW0lf (@p0rtalw0lf.bsky.social), and Xelas_Shep (@xelasshep.bsky.social) are open zoophiles.
+134. P0rtalW0lf (@p0rtalw0lf.bsky.social), and Xelas_Shep (@xelasshep.bsky.social) are open zoophiles.
 135. Curious Yeen (@curiousyeen.bsky.social) follows open zoophiles.
 136. Stimky Doggo (@stimkydoggo.bsky.social) and Kalii (@kaliipso.bsky.social) are open zoophiles.
 137. Cooro (@coororaccoon.bsky.social) follows open zoophiles.
