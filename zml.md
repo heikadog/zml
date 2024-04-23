@@ -224,8 +224,8 @@ Some additional information:
 158. adonizwulf (@adonizwulf.bsky.social) and HuskyFortune (@huskyfortune.bsky.social) follow open zoophiles.
 159. Loona (@cryptic-loona.bsky.social) is an open zoophile.
 160. moteyote/motoryote (@od.dog) defended wild\_\_life, but additionally twisted several academic studies on CSEM into applying to all paraphilias and citing studies that ended up not supporting his claims anyway, as evident from this thread by @ExposeTheFV on Twitter: (<https://archive.today/O4i2C>).
-161. Jupiter (@jupiterisgay.bsky.social), Rykes (@rykes.bsky.social), Hunter Forrest (@hunterforrest.bsky.social) are open zoophiles.
-162. Urza (@urzah3ll.bsky.social) and ShiUrx (@shiur.bsky.social) follow open zoophiles.
+161. Jupiter (@jupiterisgay.bsky.social), Rykes (@rykes.bsky.social), Hunter Forrest (@hunterforrest.bsky.social), and Urza (@urzah3ll.bsky.social) are open zoophiles.
+162. ShiUrx (@shiur.bsky.social) follows open zoophiles.
 163. Wibke (@wibkezeta.bsky.social) and Black Jack (@blackjackhamaza.bsky.social) are open zoophiles.
 164. TranzWolf (@tranzwolf.bsky.social) follows open zoophiles.
 165. Ryke (@ryke.bsky.social/@rykead.bsky.social) is an open zoophile, currently sporting the Greek zeta in their current Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>)
@@ -299,8 +299,8 @@ Some additional information:
 233. aves (@ornithophile.bsky.social), The lover (@rslima.bsky.social), Tariaaa (@tariaaa.bsky.social), zedazoup (@zedazoup.bsky.social), and Clovii (@clxvz.bsky.social) are open zoophiles.
 234. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
 235. unno (@tokolulderan.bsky.social) follows open zoophiles.
-236. Recker (@reckeryote.bsky.social) is an open zoophile.
-237. Maldrasen (@maldrasen.bsky.social), Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), Torch (@torchhd.bsky.social), night788 (@night788.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), alabasterdized (@alabasterdized.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
+236. Recker (@reckeryote.bsky.social) and Maldrasen are open zoophiles.
+237. Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), Torch (@torchhd.bsky.social), night788 (@night788.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), alabasterdized (@alabasterdized.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
 238. Fley the Dragon (@fleythedragon.bsky.social) and ell (@ellbust.bsky.social) are open zoophiles.
 239. Hakan (@hakanwillnom.bsky.social) is an alt of Kero The Wolf, a known necrozoosadist with ties to SnakeThing and Tane. Here's two threads with proof that this is actually Kero: (1: <https://twitter.com/KeroArchive/status/1756107775568908601> / 2: <https://twitter.com/DogpatchPress/status/1756253402492023255>).
 240. Ally Pup (@allypup89.zoofurs.net) and mewkittythezoo (@mewkittythezoo.bsky.social) are open zoophiles.
