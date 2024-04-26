@@ -321,3 +321,4 @@ Some additional information:
 255. Zoophile (@zoophile.bsky.social) and Kutya (@koirapotes.bsky.social) are open zoophiles.
 256. liondogari/Ari/Dog Dad (@ari.butt.dog) is a zoophile. In a recent photo, Ari was spotted with a "zoophile pride" sticker on his phone case: (<https://archive.today/Z1jLG>).
 257. supercreep biindey (@biindey3s.bsky.social), majorpepperidge (@majorpepperidge.bsky.social), MyAltAccount (@myaltaccount.bsky.social), phenizoopart2 (@phenizoopart2.bsky.social), Oak (@oak261515.bsky.social), bonk (@yes650811.bsky.social), Ollie (@ollieandzues.bsky.social), HalsanLeLoup (@petitlouphal.bsky.social), Ayana (@ayanazoo.bsky.social), Shep (@cheer0shep.bsky.social), Skyto (@skyto1436.bsky.social), ManedLioness (@barely-human.bsky.social), INTLight (@intlight5.bsky.social), silly.fennec (@kittdotfennec.bsky.social), and Dasha (@varmxnt.bsky.social) are open zoophiles.
+258. Consuela (@mapsupport.de) follows open zoophiles.
