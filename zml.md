@@ -15,7 +15,7 @@ You can submit accounts to the list, request to be removed from the list, or sub
 
 To be added to the list, candidates should meet at least one or more of these criteria:
 
-1. Publicly identifying as a zoophile. This includes having indicators like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀) on their profile, or having a handle that's linked to an explicitly zoophile-centric domain name like \*.zoo.wtf, \*.zoo.and.me, \*.zooey.pub, or \*.zoofurs.net.
+1. Publicly identifying as a zoophile. This includes having indicators like the zeta symbol (ζ), the triangles and four-pointed star (◤ ✦ ◢), or the Phoenician aleph (𐤀) on their profile, or having a handle that's linked to an explicitly zoophile-centric domain name like \*.zoo.wtf, \*.zoo.and.me, \*.zooey.pub, or \*.zoofurs.net.
 2. Being publicly exposed by a whistleblower for being a zoophile.
 3. Actively interacting with zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large amount of accounts which explicitly advocate for zoophilia.
 4. Being found to create spaces which openly welcome zoophiles, or otherwise being found to participate in conversations which advocate for or admit to zoophilic acts.
@@ -323,4 +323,4 @@ Some additional information:
 257. supercreep biindey (@biindey3s.bsky.social), majorpepperidge (@majorpepperidge.bsky.social), MyAltAccount (@myaltaccount.bsky.social), phenizoopart2 (@phenizoopart2.bsky.social), Oak (@oak261515.bsky.social), bonk (@yes650811.bsky.social), Ollie (@ollieandzues.bsky.social), HalsanLeLoup (@petitlouphal.bsky.social), Ayana (@ayanazoo.bsky.social), Shep (@cheer0shep.bsky.social), Skyto (@skyto1436.bsky.social), ManedLioness (@barely-human.bsky.social), INTLight (@intlight5.bsky.social), silly.fennec (@kittdotfennec.bsky.social), and Dasha (@varmxnt.bsky.social) are open zoophiles.
 258. SparklingPishy (@sparklingpishy.bsky.social), Taboogle (@taboogle.bsky.social), Drop (@dandeliondrop.bsky.social), clyrotail (@clyrotail.bsky.social), Zee the leopard (@zeetaleopard.bsky.social), nordzoo (@nordzoo.bsky.social), Zooming (@teddyzoom.bsky.social), and RabidMutt666 (@fckelonmuskyhusky.bsky.social) are open zoophiles.
 259. Consuela (@mapsupport.de) and lucifer6668 (@lucifer6668.bsky.social) follow open zoophiles.
-260. Canisamor (@cryptidwren.bsky.social), Puppy (@zooeypuppy.bsky.social), izzy (@lezbezoo.bsky.social), Emrrys (@emrrys.bsky.social), Zeta (@muskyshep420.bsky.social), and bunna th zoofur (@bunna666.bsky.social) are open zoophiles.
+260. Canisamor (@cryptidwren.bsky.social), Puppy (@zooeypuppy.bsky.social), izzy (@lezbezoo.bsky.social), Emrrys (@emrrys.bsky.social), Zeta (@muskyshep420.bsky.social), bunna th zoofur (@bunna666.bsky.social), and Zookies (@zookiesandcream.bsky.social) are open zoophiles.
