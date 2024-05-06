@@ -324,3 +324,4 @@ Some additional information:
 258. SparklingPishy (@sparklingpishy.bsky.social), Taboogle (@taboogle.bsky.social), Drop (@dandeliondrop.bsky.social), clyrotail (@clyrotail.bsky.social), Zee the leopard (@zeetaleopard.bsky.social), nordzoo (@nordzoo.bsky.social), Zooming (@teddyzoom.bsky.social), and RabidMutt666 (@fckelonmuskyhusky.bsky.social) are open zoophiles.
 259. Consuela (@mapsupport.de) and lucifer6668 (@lucifer6668.bsky.social) follow open zoophiles.
 260. Canisamor (@cryptidwren.bsky.social), Puppy (@zooeypuppy.bsky.social), izzy (@lezbezoo.bsky.social), Emrrys (@emrrys.bsky.social), Zeta (@muskyshep420.bsky.social), bunna th zoofur (@bunna666.bsky.social), Zookies (@zookiesandcream.bsky.social), goober (@spicedcum.bsky.social), and gaylvrby (@gaylvrby.bsky.social) are open zoophiles.
+261. Unuyo (@nuyo.bsky.social) follows open zoophiles.
