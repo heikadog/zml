@@ -325,4 +325,4 @@ Some additional information:
 259. Consuela (@mapsupport.de) and lucifer6668 (@lucifer6668.bsky.social) follow open zoophiles.
 260. Canisamor (@cryptidwren.bsky.social), Puppy (@zooeypuppy.bsky.social), izzy (@lezbezoo.bsky.social), Emrrys (@emrrys.bsky.social), Zeta (@muskyshep420.bsky.social), bunna th zoofur (@bunna666.bsky.social), Zookies (@zookiesandcream.bsky.social), goober (@spicedcum.bsky.social), gaylvrby (@gaylvrby.bsky.social), and beardcigar (@beardcigar.bsky.social) are open zoophiles.
 261. Unuyo (@nuyo.bsky.social) follows open zoophiles.
-262. DogFucker (@thezoophile.bsky.social), Matt (@pervwolf94.bsky.social), Gay ass birb (@calliethecorvid.bsky.social), Fisa (@fisafis.bsky.social), and FestiveMe (@festiveme.bsky.social) are open zoophiles.
+262. DogFucker (@thezoophile.bsky.social), Matt (@pervwolf94.bsky.social), Gay ass birb (@calliethecorvid.bsky.social), Fisa (@fisafis.bsky.social), FestiveMe (@festiveme.bsky.social), and floofinfoxzet (@floofinfoxzet.bsky.social) are open zoophiles.
