@@ -51,7 +51,7 @@ Some additional information:
 8. A Knotty Raccoon Girl (@kraccgurl.bsky.social) is an open zoophile.
 9. Kaptain (@kaptain.dog) was found openly harboring zoophiles in a DM and called people holding zoophiles accountable "a witch hunt," in addition to interacting with Cenny's AD. (<https://twitter.com/ExposeTheFV/status/1442165316608479232>).
 10. Huskeee (@huskeee.bsky.social) and ZoobyDoobyDoo (@zoobydoobydoo.bsky.social) are both open zoophiles who requested to be put on the list: (1: <https://bsky.app/profile/huskeee.bsky.social/post/3k3pdbw7hvw2d> / 2: <https://bsky.app/profile/zoobydoobydoo.bsky.social/post/3k3txqk7kz72y>)
-11. Zena O’Brien (@zenamobrien.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://bsky.app/profile/the984.bsky.social/post/3k3wp3usva62i>)
+11. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyfp.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://bsky.app/profile/the984.bsky.social/post/3k3wp3usva62i>)
 12. Akito (@akito.zooand.me) hosts a zoophile podcast and is an open zoophile: (<https://bsky.app/profile/akito.zooand.me/post/3k46ghzxyqs22>).
 13. ~~ZooFur Faction (@zoo.pics) posts explicit images of IRL animal genitalia.~~ We’ve gotten this account taken down. To anyone who reported them or shared a post calling for them to be reported, thank you! 🎉
 14. 007bistromath (@007bistromath.bsky.social), Vex (@koolkanine.zooand.me), The Dog Queen (@interestedknot.bsky.social), Ceres Fallen (@ceresfallen.bsky.social), Akkuriss (@akkuriss.bsky.social), and Brass Bulldog (@brass.zooand.me) are all open zoophiles.
