@@ -326,4 +326,5 @@ Some additional information:
 260. Canisamor (@cryptidwren.bsky.social), Puppy (@zooeypuppy.bsky.social), izzy (@lezbezoo.bsky.social), Emrrys (@emrrys.bsky.social), Zeta (@muskyshep420.bsky.social), bunna th zoofur (@bunna666.bsky.social), Zookies (@zookiesandcream.bsky.social), goober (@spicedcum.bsky.social), gaylvrby (@gaylvrby.bsky.social), beardcigar (@beardcigar.bsky.social), DogFucker (@thezoophile.bsky.social), Matt (@pervwolf94.bsky.social), Gay ass birb (@calliethecorvid.bsky.social), Fisa (@fisafis.bsky.social), FestiveMe (@festiveme.bsky.social), floofinfoxzet (@floofinfoxzet.bsky.social), and Prvypiggy (@prvypiggy.bsky.social) are open zoophiles.
 261. Unuyo (@nuyo.bsky.social), meow2meow (@meow2meow.bsky.social), and idktbhbleh (@idktbhbleh.bsky.social) follow open zoophiles.
 262. Shugunou (@shugunou.bsky.social/@shugunouad.bsky.social) is an open zoophile.
-263. Jamie J (@slightlyflightyone.bsky.social) follows and interacts with zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>). 
+263. Jamie J (@slightlyflightyone.bsky.social) follows and interacts with zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>).
+264. ZFORM (@zform.bsky.social), Dog Dad (@dogdad99.bsky.social), and pupcvnt (@pupcvnt.bsky.social) are open zoophiles.
