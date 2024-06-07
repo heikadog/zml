@@ -327,4 +327,4 @@ Some additional information:
 261. Unuyo (@nuyo.bsky.social), meow2meow (@meow2meow.bsky.social), and idktbhbleh (@idktbhbleh.bsky.social) follow open zoophiles.
 262. Shugunou (@shugunou.bsky.social/@shugunouad.bsky.social) is an open zoophile.
 263. Jamie J (@slightlyflightyone.bsky.social) follows and interacts with zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>).
-264. ZFORM (@zform.bsky.social), Dog Dad (@dogdad99.bsky.social), pupcvnt (@pupcvnt.bsky.social), Shiro (@shirocollie.bsky.social), Zylo (@zylofox.bsky.social), FeralWolf (@juicyspades.bsky.social), Birdybitch (@bordfortheword.bsky.social), and wurden (@thejosephrichman.bsky.social) are open zoophiles.
+264. ZFORM (@zform.bsky.social), Dog Dad (@dogdad99.bsky.social), pupcvnt (@pupcvnt.bsky.social), Shiro (@shirocollie.bsky.social), Zylo (@zylofox.bsky.social), FeralWolf (@juicyspades.bsky.social), Birdybitch (@bordfortheword.bsky.social), wurden (@thejosephrichman.bsky.social), and canidoor (@canidoor.bsky.social) are open zoophiles.
