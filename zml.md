@@ -327,3 +327,4 @@ Some additional information:
 261. Shugunou (@shugunou.bsky.social/@shugunouad.bsky.social) is an open zoophile.
 262. Jamie J (@slightlyflightyone.bsky.social) follows and interacts with zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>).
 263. Dog Dad (@dogdad99.bsky.social), pupcvnt (@pupcvnt.bsky.social), Shiro (@shirocollie.bsky.social), Zylo (@zylofox.bsky.social), FeralWolf (@juicyspades.bsky.social), Birdybitch (@bordfortheword.bsky.social), wurden (@thejosephrichman.bsky.social), and canidoor (@canidoor.bsky.social) are open zoophiles.
+264. Ollie/ArtsyPawz (@artsypawz.bsky.social) interacts with and supports zoophiles. Full statement: (<https://bsky.app/profile/heika.dog/post/3kutbudbvj27f>)
