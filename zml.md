@@ -15,11 +15,11 @@ You can submit accounts to the list, request to be removed from the list, or sub
 
 To be added to the list, candidates should meet at least one or more of these criteria:
 
-1. Publicly identifying as a zoophile. This includes having known coded dogwhistles on their profile like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to an explicitly zoophile-centric domain name like \*.zoo.wtf, \*.zoo.and.me, \*.zooey.pub, or \*.zoofurs.net.
-2. Being publicly exposed by a whistleblower for being a zoophile.
-3. Actively interacting with zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large amount of accounts which explicitly advocate for zoophilia.
-4. Being found to create spaces which openly welcome zoophiles, or otherwise being found to participate in conversations which advocate for or admit to zoophilic acts.
-5. Explicitly supporting or covering for zoophiles or their associates.
+1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name like *.zoo.wtf, *.zoo.and.me, *.zooey.pub, or *.zoofurs.net.
+2. Actively interacting with zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large number of zoophiles.
+3. Creating spaces that welcome zoophiles or participating in conversations which advocate for or admit to zoophilic acts.
+4. Supporting or defending zoophiles or their associates.
+5. Being publicly identified as a zoophile by a reputable whistleblower.
 
 Some additional information:
 
@@ -328,4 +328,4 @@ Some additional information:
 262. Jamie J (@slightlyflightyone.bsky.social) follows and interacts with zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>).
 263. Dog Dad (@dogdad99.bsky.social), pupcvnt (@pupcvnt.bsky.social), Shiro (@shirocollie.bsky.social), Zylo (@zylofox.bsky.social), FeralWolf (@juicyspades.bsky.social), Birdybitch (@bordfortheword.bsky.social), wurden (@thejosephrichman.bsky.social), canidoor (@canidoor.bsky.social), and Cave Dwelling Skunkie (@fluffskunkie.bsky.social) are open zoophiles.
 264. Ollie/ArtsyPawz (@artsypawz.bsky.social) interacts with and supports open zoophiles. In addition to interacting with people who openly identify as zoophiles, they've also suggested multiple times across multiple accounts that people who identify as zoophiles are not abusers, spanning as far back as September of 2023. We believe that while paraphiles aren't inherently abusers, but participating in the wider community enables a larger cycle of abuse, even in the case of open zoophiles who consider themselves anti-contact. Paraphiles with these attractions should seek therapy from people specialized in working with paraphilias, not in communities which normalize abuse. Full statement from the mute list team with screenshots of evidence: (<https://bsky.app/profile/heika.dog/post/3kutbudbvj27f>).
-
+265. Bitdizzy (@bitdizzy.bsky.social) knowingly associates with self-admitted zoophiles, which is explicitly her own words: (<https://bsky.app/profile/bitdizzy.bsky.social/post/3kuvu7i4ihk2b>). She's interacted with multiple open zoophiles multiple times: (<https://archive.today/EIpl7>).
