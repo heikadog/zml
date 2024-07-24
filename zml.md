@@ -16,10 +16,9 @@ You can submit accounts to the list, request to be removed from the list, or sub
 To be added to the list, candidates should meet at least one or more of these criteria:
 
 1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name like \*.zoo.wtf, \*.zoo.and.me, \*.zooey.pub, or \*.zoofurs.net.
-2. Actively interacting with zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large number of zoophiles.
-3. Creating spaces that welcome zoophiles or participating in conversations which advocate for or admit to zoophilic acts.
-4. Supporting or defending zoophiles or their associates.
-5. Being publicly identified as a zoophile by a reputable whistleblower.
+2. Actively interacting with open zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large number of open zoophiles.
+3. Supporting or defending zoophiles or their associates, or creating spaces that welcome zoophiles.
+4. Being publicly identified as a zoophile by a reputable whistleblower, or being found participating in conversations which advocate for or admit to zoophilic acts.
 
 Some additional information:
 
