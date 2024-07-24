@@ -259,7 +259,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 190. ScarredLion (@scarredlion.bsky.social), joejoe (@joejoe4games.bsky.social), Kas (@boytiger.bsky.social), Pup Shadow (@woofpupshadowsf.bsky.social), and h1fur (@h1fur.bsky.social) follow open zoophiles.
 191. A Logical Thylacine (@logicthylacine.bsky.social) is an open zoophile. Even though the account is locked, their Twitter bio has a particular series of coded symbols that act as shorthand for their experiences with zoophilia, otherwise known as a "Zoo Code": (<https://archive.today/P1gjr>). _[It wasn't archived, but we should note the same code format was also on Thera's profile before it got suspended.]_ They also only follow open zoophiles.
 192. Cozmos Fox (@cozmosfox.bsky.social) and Queen Cozy Glow (@zooqueen.bsky.social) are open zoophiles.
-193. Cameron (@camdogs12.bsky.social), Edgyrat (@edgyrat.bsky.social), Fie (@wufiesluv.bsky.social), and BatSluTrue (@batsluslu.bsky.social) follow open zoophiles.
+193. Edgyrat (@edgyrat.bsky.social), Fie (@wufiesluv.bsky.social), and BatSluTrue (@batsluslu.bsky.social) follow open zoophiles.
 194. The Trans Grinlin Queen (@nexiumnexus.bsky.social) is an open zoophile.
 195. beuterall (@beuterall.bsky.social) follows open zoophiles.
 196. Raine (@raineyote.bsky.social), rainbowkitty (@rainbowkitty.bsky.social), cloacaposter (@cloacaposter.bsky.social), and ZetaYewZoo (@zetauthezoocoyote.bsky.social) are open zoophiles.
