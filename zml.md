@@ -191,8 +191,8 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 125. bestiality (@bestiality.bsky.social) and Sunkawakan (@sunkawakan.bsky.social) follow open zoophiles.
 126. Blossom (@fl0weringnight.bsky.social) is an open zoophile.
 127. Queer-Dog Researcher (@theyoungtourist.bsky.social), BeePZ (@beepz.bsky.social), Nieve Rosa (@robinna.bsky.social), ChastityBear (@chastitybear.bsky.social), mrdaddypossum (@mrdaddypossum.bsky.social), and Somr (@somersaet.bsky.social) follow open zoophiles.
-128. Fantescatom (@fantescatom.bsky.social), Sophie (@olio.bsky.social), 6pm (@6pm.bsky.social), and ZooCat (@zoocat.bsky.social) are open zoophiles.
-129. flareup (@flareup.bsky.social) follows open zoophiles.
+128. Fantescatom (@fantescatom.bsky.social), Sophie (@olio.bsky.social), and ZooCat (@zoocat.bsky.social) are open zoophiles.
+129. 6pm (@6pm.bsky.social) and flareup (@flareup.bsky.social) follow open zoophiles.
 130. P0rtalW0lf (@p0rtalw0lf.bsky.social), and Xelas_Shep (@xelasshep.bsky.social) are open zoophiles.
 131. Curious Yeen (@curiousyeen.bsky.social) follows open zoophiles.
 132. Stimky Doggo (@stimkydoggo.bsky.social) and Kalii (@kaliipso.bsky.social) are open zoophiles.
