@@ -223,7 +223,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 154. adonizwulf (@adonizwulf.bsky.social) and HuskyFortune (@huskyfortune.bsky.social) follow open zoophiles.
 155. Loona (@cryptic-loona.bsky.social) is an open zoophile.
 156. moteyote/motoryote (@od.dog) defended wild\_\_life, but additionally twisted several academic studies on CSEM into applying to all paraphilias and citing studies that ended up not supporting his claims anyway, as evident from this thread by @ExposeTheFV on Twitter: (<https://archive.today/O4i2C>).
-157. Jupiter (@jupiterisgay.bsky.social), Rykes (@rykes.bsky.social), Hunter Forrest (@hunterforrest.bsky.social), and Urza (@urzah3ll.bsky.social) are open zoophiles.
+157. Jupiter (@jupiterisgay.bsky.social) and Rykes (@rykes.bsky.social) are open zoophiles.
 158. ShiUrx (@shiur.bsky.social) follows open zoophiles.
 159. Wibke (@wibkezeta.bsky.social) and Black Jack (@blackjackhamaza.bsky.social) are open zoophiles.
 160. TranzWolf (@tranzwolf.bsky.social) follows open zoophiles.
