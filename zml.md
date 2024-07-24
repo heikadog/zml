@@ -262,7 +262,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 193. Edgyrat (@edgyrat.bsky.social), Fie (@wufiesluv.bsky.social), and BatSluTrue (@batsluslu.bsky.social) follow open zoophiles.
 194. The Trans Grinlin Queen (@nexiumnexus.bsky.social) is an open zoophile.
 195. beuterall (@beuterall.bsky.social) follows open zoophiles.
-196. Raine (@raineyote.bsky.social), rainbowkitty (@rainbowkitty.bsky.social), cloacaposter (@cloacaposter.bsky.social), and ZetaYewZoo (@zetauthezoocoyote.bsky.social) are open zoophiles.
+196. Raine (@raineyote.bsky.social), rainbowkitty (@rainbowkitty.bsky.social), and cloacaposter (@cloacaposter.bsky.social) are open zoophiles.
 197. regg00 (@regg00.bsky.social) and BasilTheFolf (basilthefolf.bsky.social) follow open zoophiles.
 198. Valence (@valencethedeer.bsky.social), otherwise known as Quantum Kitty, is a convicted zoosadist: (<https://archive.today/gSisX>).
 199. Miles (@milesthezshep.bsky.social) is an open zoophile.
