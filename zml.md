@@ -298,7 +298,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 229. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), and zedazoup (@zedazoup.bsky.social) are open zoophiles.
 230. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
 231. tokolulderan (@tokolulderan.bsky.social/@kemoshota.bsky.social) follows open zoophiles.
-232. Recker (@reckeryote.bsky.social) and Maldrasen are open zoophiles.
+232. Maldrasen is an open zoophile.
 233. Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), Torch (@torchhd.bsky.social), night788 (@night788.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), alabasterdized (@alabasterdized.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
 234. Fley the Dragon (@fleythedragon.bsky.social) and ell (@ellbust.bsky.social) are open zoophiles.
 235. Hakan (@hakanwillnom.bsky.social) is an alt of Kero The Wolf, a known necrozoosadist with ties to SnakeThing and Tane. Here's two threads with proof that this is actually Kero: (1: <https://twitter.com/KeroArchive/status/1756107775568908601> / 2: <https://twitter.com/DogpatchPress/status/1756253402492023255>).
