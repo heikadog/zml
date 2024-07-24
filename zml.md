@@ -295,7 +295,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 226. Jamie Sharp (@jamiesharp.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
 227. MareLover (@marelover.bsky.social) and The lover (@rslima.bsky.social) are open zoophiles.
 228. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
-229. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), zedazoup (@zedazoup.bsky.social), and Clovii (@clxvz.bsky.social) are open zoophiles.
+229. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), and zedazoup (@zedazoup.bsky.social) are open zoophiles.
 230. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
 231. tokolulderan (@tokolulderan.bsky.social/@kemoshota.bsky.social) follows open zoophiles.
 232. Recker (@reckeryote.bsky.social) and Maldrasen are open zoophiles.
