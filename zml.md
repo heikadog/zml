@@ -286,7 +286,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 217. ylswperv (@ylswperv.bsky.social) and TabooMonkey (@zoomonkey.bsky.social) are open zoophiles.
 218. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile according to their Twitter: (<https://archive.today/Xfawd>).
 219. Zackie (@zackieroo.bsky.social) follows open zoophiles.
-220. SomeFeral (@someferal.bsky.social), FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), Vandal (@stupidgirlthing.bsky.social), and Extramolestrial (@discipleofasmodeus.bsky.social) are open zoophiles.
+220. FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), Vandal (@stupidgirlthing.bsky.social), and Extramolestrial (@discipleofasmodeus.bsky.social) are open zoophiles.
 221. Toxic (@baxterartworks.com) follows open and known zoophiles.
 222. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), and Rosielynn (@rosielynn.bsky.social) are open zoophiles.
 223. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Zarky (@zarkyzeta.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
