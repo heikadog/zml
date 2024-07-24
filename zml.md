@@ -268,7 +268,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 199. Miles (@milesthezshep.bsky.social) is an open zoophile.
 200. Rosa The Puppy (@snowythepuppy.bsky.social), goldenshep (@goldenshep.bsky.social), vulirinmo (@vulirinmo.bsky.social), Morg (@monsterlayer.bsky.social), Mango (@mangoking.bsky.social), Ezra the Fox (@cute.church), and wlightning245 (@wlightning245.bsky.social) follow open zoophiles.
 201. K9Nomad (@k9nomad.zoofurs.net) and Quetzal (@quetzalkreep.bsky.social) are open zoophiles.
-202. hothorses (@hothorses.bsky.social), 1moonfoxx (@1moonfoxx.bsky.social), Forest (@vesperthefluff.bsky.social), and Lycaon_Zathura (lycaonzathura.bsky.social) follow open zoophiles.
+202. hothorses (@hothorses.bsky.social), Forest (@vesperthefluff.bsky.social), and Lycaon_Zathura (lycaonzathura.bsky.social) follow open zoophiles.
 203. Rax (@raxrex.bsky.social), ZetaWolf (@zetawolf21.zoofurs.net), Sirius GSD (@siriusgsd.bsky.social), and zoosadism (@zoosadism.bsky.social) are open zoophiles.
 204. Hippie Grandpa (@hippiepappa.bsky.social) follows open zoophiles.
 205. UnusualHorse (@unusualhorse.bsky.social), Kazuma (@kazumathehorse.bsky.social), Debbie (@doglovinposs.bsky.social), Mutt (@knottymutt.bsky.social), and RealGrayWoof (@realgraywoof.bsky.social) are open zoophiles.
