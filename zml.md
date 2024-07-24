@@ -297,7 +297,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 228. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
 229. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), zedazoup (@zedazoup.bsky.social), and Clovii (@clxvz.bsky.social) are open zoophiles.
 230. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
-231. tokolulderan (@tokolulderan.bsky.social) follows open zoophiles.
+231. tokolulderan (@tokolulderan.bsky.social/@kemoshota.bsky.social) follows open zoophiles.
 232. Recker (@reckeryote.bsky.social) and Maldrasen are open zoophiles.
 233. Cuteboio (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Elio5 (@elio5.bsky.social), Lexex (@lex90.bsky.social), Myrion (@myrion.bsky.social), Torch (@torchhd.bsky.social), night788 (@night788.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), alabasterdized (@alabasterdized.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
 234. Fley the Dragon (@fleythedragon.bsky.social) and ell (@ellbust.bsky.social) are open zoophiles.
