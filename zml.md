@@ -31,10 +31,6 @@ Some additional information:
 
 These stipulations prevent innocent people from being unfairly put on the list, as we're aware these are serious accusations that can ruin a person's reputation and should not be taken lightly.
 
-- All relevant links to evidence are archived on <https://archive.today> in the event that they go down or change for any reason, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
-
-These stipulations prevent innocent people from being unfairly put on the list, as we're aware these are serious accusations that can ruin a person's reputation and should not be taken lightly.
-
 ## Evidence
 
 **Content warning:** Some of these links include censored, but still explicit animal sexual abuse media—proceed with caution.
