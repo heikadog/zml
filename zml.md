@@ -154,7 +154,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 88. Tekfox (@tekfox.bsky.social) and Tuaolo (@tuaolothejag.bsky.social), along with Dire, were outed as zoophiles and pictured at a ski meet with known zoophile Akari: (<https://twitter.com/ConStaffWatch/status/1399573940054347778>).
 89. Zooier Than Thou (@zoo.wtf) is a zoophile-centric podcast.
 90. Adramedes (@adramedes.bsky.social) only follows zoophiles. Additionally, they run a zoophile-centric Telegram group, as evident from their Twitter: (<https://twitter.com/adramedes>).
-91. Mika (@vixencore.bsky.social) is an open zoophile. In 2022, in response to someone ripping up zoophile-centric stickers, she said "we'll put up more:" (<https://archive.today/gbkPT>) And despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry evens because of how open she was about being a zoophile: (<https://archive.today/nt2gM>). Additionally, she liked posts from open zoophiles like Heart Chee: (<https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s> / <https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s/liked-by>) and Blethyn: (<https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j> / <https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j/liked-by>). She also follows open zoophiles like Soren and Thera.
+91. Mika (@vixencore.bsky.social) interacts with zoophiles and used to call herself an open zoophile. In 2022, in response to someone ripping up zoophile-centric stickers, she said "we'll put up more:" (<https://archive.today/gbkPT>) And despite saying she's not in the community anymore in the past, she willingly associates with open zoophiles as recently as early September 2023. In this reply to Thera, an open zoophile, she says she's "hiding herself" and got banned from several furry events because of how open she was about being a zoophile: (<https://archive.today/nt2gM>). Additionally, she liked posts from open zoophiles like Heart Chee: (<https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s> / <https://bsky.app/profile/heartchee.bsky.social/post/3k7jtpkuish2s/liked-by>) and Blethyn: (<https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j> / <https://bsky.app/profile/blethyn.bsky.social/post/3k72slswczw2j/liked-by>). She also follows open zoophiles like Soren and Thera.
 92. Kaie Yote (@yoteyoteyote.bsky.social) follows open zoophiles. Additionally, they bought a badge from Birtyfur: (<https://bsky.app/profile/kaieyote.bsky.social/post/3k6r6bz737726>) who frequently draws icons for and publicly associates with zoophiles: (<https://twitter.com/ExposeTheFV/status/1684853358593798144>).
 93. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
 94. Sukie (@sukie.bsky.social) follows open zoophiles.
@@ -191,8 +191,8 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 125. bestiality (@bestiality.bsky.social) and Sunkawakan (@sunkawakan.bsky.social) follow open zoophiles.
 126. Blossom (@fl0weringnight.bsky.social) is an open zoophile.
 127. Queer-Dog Researcher (@theyoungtourist.bsky.social), BeePZ (@beepz.bsky.social), Nieve Rosa (@robinna.bsky.social), ChastityBear (@chastitybear.bsky.social), mrdaddypossum (@mrdaddypossum.bsky.social), and Somr (@somersaet.bsky.social) follow open zoophiles.
-128. Fantescatom (@fantescatom.bsky.social), Sophie (@olio.bsky.social), 6pm (@6pm.bsky.social), and ZooCat (@zoocat.bsky.social) are open zoophiles.
-129. flareup (@flareup.bsky.social) follows open zoophiles.
+128. Fantescatom (@fantescatom.bsky.social) and Sophie (@olio.bsky.social) are open zoophiles.
+129. 6pm (@6pm.bsky.social) and flareup (@flareup.bsky.social) follow open zoophiles.
 130. P0rtalW0lf (@p0rtalw0lf.bsky.social), and Xelas_Shep (@xelasshep.bsky.social) are open zoophiles.
 131. Curious Yeen (@curiousyeen.bsky.social) follows open zoophiles.
 132. Stimky Doggo (@stimkydoggo.bsky.social) and Kalii (@kaliipso.bsky.social) are open zoophiles.
@@ -208,7 +208,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 139. Reindeer (@hundilein.bsky.social) is an open zoophile.
 140. Josesk Volpe (@volpejosesk.bsky.social) follows open zoophiles.
 141. Grohiik (@thegrohiik.bsky.social), Ell The Proud Zoo (@ellzeta.bsky.social), Fido (@fidofidelis.bsky.social), and greenglassdog (@greenglassdog.bsky.social) are open zoophiles.
-142. pisps (@pisps.bsky.social), Shadow (@closingdistance.bsky.social), dogknot (@dogknot.bsky.social), Lex the Fox (@alexisvulpes.bsky.social), Silvar the Wuff (@silvarthewuff.bsky.social), skararox (@skararox.bsky.social), and Day (@aorci.bsky.social) follow open zoophiles.
+142. pisps (@pisps.bsky.social), Shadow (@closingdistance.bsky.social), dogknot (@dogknot.bsky.social), Lex the Fox (@alexisvulpes.bsky.social), Silvar the Wuff (@silvarthewuff.bsky.social), skararox (@skararox.bsky.social), and troubled (@troubled0.bsky.social) follow open zoophiles.
 143. Faint (@thatfox.bsky.social), Ragnar (@ragnar-zooey.bsky.social), Salzuki (@filthyanimalzoo.bsky.social), and c0smicprotogen (@c0smicprotogen.bsky.social) are open zoophiles.
 144. Empty brains (@weirdlizard.bsky.social) and Momma Magia Baiser (@not2btolerated.bsky.social) follow open zoophiles.
 145. Thera (@thera.pw/@thera666.bsky.social/@therah.bsky.social) is an open zoophile. On November 8th, 2023, she posted feral NSFW art of my fursona with a Greek zeta on the ass as a "thanks" for creating the mute list, which is sexual harassment: (<https://archive.today/0YoYQ>). She also alleged that I'm a "closeted bestialist" because I use IRL pictures of huskies to represent myself online: (<https://archive.today/U4lnn>). And in response to me saying she shouldn't use her trauma to say "furries _are_ zoophiles," and, if anything, that's why zoophiles are dangerous, she sent me Telegram messages where she literally hit the character limit saying I'm "targeting" her, when she's been harassing me for having her on the list: (<https://archive.today/uDD4F>). _[Thera's Bluesky accounts have since been deleted, but we've decided to keep this entry in the document since this context is important to certain events related to the mute list.]_
@@ -223,7 +223,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 154. adonizwulf (@adonizwulf.bsky.social) and HuskyFortune (@huskyfortune.bsky.social) follow open zoophiles.
 155. Loona (@cryptic-loona.bsky.social) is an open zoophile.
 156. moteyote/motoryote (@od.dog) defended wild\_\_life, but additionally twisted several academic studies on CSEM into applying to all paraphilias and citing studies that ended up not supporting his claims anyway, as evident from this thread by @ExposeTheFV on Twitter: (<https://archive.today/O4i2C>).
-157. Jupiter (@jupiterisgay.bsky.social), Rykes (@rykes.bsky.social), Hunter Forrest (@hunterforrest.bsky.social), and Urza (@urzah3ll.bsky.social) are open zoophiles.
+157. Jupiter (@jupiterisgay.bsky.social) and Rykes (@rykes.bsky.social) are open zoophiles.
 158. ShiUrx (@shiur.bsky.social) follows open zoophiles.
 159. Wibke (@wibkezeta.bsky.social) and Black Jack (@blackjackhamaza.bsky.social) are open zoophiles.
 160. TranzWolf (@tranzwolf.bsky.social) follows open zoophiles.
