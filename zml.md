@@ -334,3 +334,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 265. AwesomeCat (@awesomecat.bsky.social), pupgrrl (@pupgrrl.bsky.social), Cervuss (@cervuss.bsky.social), tgthezoo (@tgthezoo.bsky.social), and RedistributorKitty (@redistributorkitty.bsky.social) are open zoophiles.
 266. AnonymousDerg (@zooeyderg.bsky.social), stayzooiy (@stayzooiy.bsky.social), and utsuho (@suffernofools.bsky.social) follow open zoophiles.
 267. In 2015, K0mpy (@k0mpy.butt.dog) tweeted that he viewed "zoo" as a guilty pleasure: (<https://archive.today/3TZDv>). Notably, his husband is liondogari/Ari/Dog Dad, who we previously outed for having a "zoo pride" sticker on his phone as of April 2024. K0mpy and Ari's Fetlife accounts verify that they're husbands: (<https://archive.today/1j2Le>)
+268. Mani (@manicolp.bsky.social) is an open zoophile.
