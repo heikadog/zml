@@ -341,4 +341,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 272. Slightly Furry (@slightlyfurry.bsky.social) was named by ConStaffWatch as willingly associating with zoophiles like K0mpy and Ari: (<https://archive.today/wVfSb>). K0mpy, an owner of the bar Slightly Furry owns, admitted to liking animal sexual abuse media: (<https://archive.today/YiBdW>), made porn with Cenny: (<https://archive.today/J40Z1>), and is married to Ari, who has a zoophile pride sticker on his phone: (<https://archive.today/Z1jLG>).
 273. zooblow (@zooblow.bsky.social), yugaslath (@yugaslath.bsky.social), and Malus (@malus.zone) follow open zoophiles.
 274. pennyplatypus (@pennyplatybus.bsky.social) is an open zoophile. They follow a zoophile podcast. and the background of their profile picture is the zoophile flag.
-275. pottedcanine (@pottedcanine.bsky.social) and raptorpyre (@raptorpyre.bsky.social) follow open zoophiles.
+275. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
