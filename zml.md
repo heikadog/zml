@@ -342,4 +342,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 273. zooblow (@zooblow.bsky.social), yugaslath (@yugaslath.bsky.social), and Malus (@malus.zone) follow open zoophiles.
 274. pennyplatypus (@pennyplatybus.bsky.social) is an open zoophile. They follow a zoophile podcast, and the background of their profile picture is the zoophile flag.
 275. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
-276. Dew (@dew-drops.bsky.social) is an open zoophile.
+276. Dew (@dew-drops.bsky.social), Tuvik (@tuvik.bsky.social), and electrowulf (@electrowulf.bsky.social) are open zoophiles.
