@@ -328,8 +328,8 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 259. Bitdizzy (@bitdizzy.bsky.social) knowingly associates with self-admitted zoophiles, which is explicitly her own words: (<https://archive.today/qV10b>). She's interacted with multiple open zoophiles multiple times: (<https://archive.today/EIpl7>).
 260. ThousandsOfOlives (@thsndsofolives.bsky.social), SensualK9 (@sensualk9.bsky.social), Ayada (@ayadaz.bsky.social), Super_Nekonii (@supernekonii32.bsky.social), Wolfie8 (@wolfie784.bsky.social), Knotty boi (@knottykittyuwu.bsky.social), Dusk Tusk (@thedusktusk.bsky.social), and breebee (@breebee.bsky.social) are open zoophiles.
 261. Ezra/critterkiddo/toonimal (@justlikeyou.bsky.social) created a website that gives pedophiles and zoophiles access to vulnerable children. Many users on the website believe animals can consent. Notably, Ezra took a stance against the phrase "animals can't consent," and stated that they're a zoophile on an alt account: (<https://archive.today/WKgsz>). There's a full callout document that goes into more detail here _[CW for talk of animal sexual abuse media and pedophilia]_: (<https://archive.today/9ks9g>).
-262. AwesomeCat (@awesomecat.bsky.social), pupgrrl (@pupgrrl.bsky.social), Cervuss (@cervuss.bsky.social), tgthezoo (@tgthezoo.bsky.social), and RedistributorKitty (@redistributorkitty.bsky.social) are open zoophiles.
-263. AnonymousDerg (@zooeyderg.bsky.social), stayzooiy (@stayzooiy.bsky.social), and utsuho (@suffernofools.bsky.social) follow open zoophiles.
+262. AwesomeCat (@awesomecat.bsky.social), pupgrrl (@pupgrrl.bsky.social), Cervuss (@cervuss.bsky.social), tgthezoo (@tgthezoo.bsky.social), and RedistributorKitty (@redistributorkitty.bsky.social), and AnonymousDerg (@zooeyderg.bsky.social) are open zoophiles.
+263. stayzooiy (@stayzooiy.bsky.social) and utsuho (@suffernofools.bsky.social) follow open zoophiles.
 264. In 2015, K0mpy (@k0mpy.butt.dog) tweeted that he viewed "zoo" as a guilty pleasure: (<https://archive.today/3TZDv>). Notably, his husband is liondogari/Ari/Dog Dad, who we previously outed for having a "zoo pride" sticker on his phone as of April 2024. K0mpy and Ari's Fetlife accounts verify that they're husbands: (<https://archive.today/1j2Le>)
 265. transfurperv (@transfurperv.bsky.social), Kibbie (@kibbieuwu.bsky.social), timggyest113 (@timggyest113.bsky.social), hibiscux064 (@hibiscux064.bsky.social), Unbound Rainbow Abyss (@unbound-abyss.bsky.social), and A pretty good dog (@fourpawsnolaws.bsky.social) follow open zoophiles.
 266. Mani (@manicolp.bsky.social), Zippy Zebra (@zippyzebra.bsky.social), and Aro the oddest ott (@lilbabyclex.bsky.social) are open zoophiles.
@@ -344,3 +344,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 275. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
 276. Dew (@dew-drops.bsky.social), Tuvik (@tuvik.bsky.social), and electrowulf (@electrowulf.bsky.social) are open zoophiles.
 277. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>).
+278. Logan (@ashesoflogan.bsky.social) is an open zoophile.
+279. b3an1 (@b3an1.bsky.social) follows open zoophiles.
