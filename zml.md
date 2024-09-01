@@ -346,3 +346,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 277. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>).
 278. Logan (@ashesoflogan.bsky.social) is an open zoophile.
 279. b3an1 (@b3an1.bsky.social) follows open zoophiles.
+280. Malique (@malique88.bsky.social) is an open zoophile.
