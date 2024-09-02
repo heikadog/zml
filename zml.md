@@ -343,7 +343,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 274. pennyplatypus (@pennyplatybus.bsky.social) is an open zoophile. They follow a zoophile podcast, and the background of their profile picture is the zoophile flag.
 275. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
 276. Dew (@dew-drops.bsky.social), Tuvik (@tuvik.bsky.social), and electrowulf (@electrowulf.bsky.social) are open zoophiles.
-277. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>).
+277. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social/@samanthathevixen.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>).
 278. Logan (@ashesoflogan.bsky.social) is an open zoophile.
 279. b3an1 (@b3an1.bsky.social) follows open zoophiles.
 280. Malique (@malique88.bsky.social) is an open zoophile.
