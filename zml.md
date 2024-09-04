@@ -347,3 +347,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 278. b3an1 (@b3an1.bsky.social) follows open zoophiles.
 279. Malique (@malique88.bsky.social) is an open zoophile.
 280. Valais/Fwucky (@valais.bsky.social/@fwucky.art) is an open zoophile, according to a Fediverse instance: (<https://archive.today/uB2EG>) He posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
+281. Emberlynns (@emberlynns.bsky.social), CoffeeDraggy (@coffeethederg.bsky.social), and Lykaon (@zoofoxpunched.bsky.social) are open zoophiles.
