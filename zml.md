@@ -342,10 +342,10 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 273. pennyplatypus (@pennyplatybus.bsky.social) is an open zoophile. They follow a zoophile podcast, and the background of their profile picture is the zoophile flag.
 274. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
 275. Dew (@dew-drops.bsky.social), Tuvik (@tuvik.bsky.social), and electrowulf (@electrowulf.bsky.social) are open zoophiles.
-276. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>).
+276. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social/@internecreature420.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
 277. Logan (@ashesoflogan.bsky.social) is an open zoophile.
 278. b3an1 (@b3an1.bsky.social) follows open zoophiles.
 279. Malique (@malique88.bsky.social) is an open zoophile.
 280. Valais/Fwucky (@valais.bsky.social/@fwucky.art) is an open zoophile, according to a Fediverse instance: (<https://archive.today/uB2EG>) He posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
-281. Emberlynns (@emberlynns.bsky.social), CoffeeDraggy (@coffeethederg.bsky.social), Lykaon (@zoofoxpunched.bsky.social), yomama33 (@yomama33.bsky.social), yeti (@yetitheperv.bsky.social), and HornyBoi (@somehornyfur.bsky.social) are open zoophiles.
+281. Emberlynns (@emberlynns.bsky.social), CoffeeDraggy (@coffeethederg.bsky.social), Lykaon (@zoofoxpunched.bsky.social), yomama33 (@yomama33.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), and ManuMare (@manumare.bsky.social) are open zoophiles.
 282. Windswept Canopies (@windsweptcanopies.bsky.social) follows open zoophiles.
