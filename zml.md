@@ -350,5 +350,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 281. Emberlynns (@emberlynns.bsky.social), CoffeeDraggy (@coffeethederg.bsky.social), Lykaon (@zoofoxpunched.bsky.social), yomama33 (@yomama33.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), ManuMare (@manumare.bsky.social), Rinko (@rinko-horsey.bsky.social), and Ravel (@noxxthesuccubus.bsky.social) are open zoophiles.
 282. Windswept Canopies (@windsweptcanopies.bsky.social), draconicnmamateur (@draconicmamateur.bsky.social), Crimson (@sweet-crimson.bsky.social), christinoaugusto (@christinoaugusto.bsky.social), and Gylan (@gylan.bsky.social) follow open zoophiles.
 283. Pferdefreund (@pferd.bsky.social), SomeoneOwO (@meowser1.bsky.social), Loba Vermelha (@goennering.bsky.social), Kitsune (@kitsune27.bsky.social), hoplophilic (@hoplophilic.bsky.social), Putinho (@wesleypeludo.bsky.social), Olive (@fantasyturigirl.bsky.social), Carodenius (@carodenius.bsky.social), and Taco (@1-taco-1.bsky.social) are open zoophiles.
-284. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://bsky.app/profile/muffinshorny.bsky.social/post/3l3vens2nnj25>)
+284. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://archive.today/ZeSEl>)
 285. AnnieGal (@anniegalla.bsky.social) follows open zoophiles.
