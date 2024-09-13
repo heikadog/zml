@@ -351,4 +351,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 282. Windswept Canopies (@windsweptcanopies.bsky.social), draconicnmamateur (@draconicmamateur.bsky.social), Crimson (@sweet-crimson.bsky.social), christinoaugusto (@christinoaugusto.bsky.social), and Gylan (@gylan.bsky.social) follow open zoophiles.
 283. Pferdefreund (@pferd.bsky.social), SomeoneOwO (@meowser1.bsky.social), Loba Vermelha (@goennering.bsky.social), Kitsune (@kitsune27.bsky.social), hoplophilic (@hoplophilic.bsky.social), Putinho (@wesleypeludo.bsky.social), Olive (@fantasyturigirl.bsky.social), Carodenius (@carodenius.bsky.social), Taco (@1-taco-1.bsky.social), and lucas (@changooneer.bsky.social) are open zoophiles.
 284. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://archive.today/ZeSEl>)
-285. AnnieGal (@anniegalla.bsky.social) follows open zoophiles.
+285. AnnieGal (@anniegalla.bsky.social) and milkbone (@milkbone.bsky.social) follow open zoophiles.
