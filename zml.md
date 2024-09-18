@@ -353,3 +353,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 284. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://archive.today/ZeSEl>)
 285. AnnieGal (@anniegalla.bsky.social) and milkbone (@milkbone.bsky.social) follow open zoophiles.
 286. Shadow (@closingdistance.bsky.social) supports open zoophiles. In particular, they reposted a meme from a zoophile with the caption, "When all your friends have [the Greek zeta] in their username": (<https://archive.today/gXNl7>)
+287. Ōmori (@oumorigin.bsky.social) has asked multiple zoophiles to talk to them about zoophilia: (<https://archive.today/Ublol>). Additionally, they follow multiple zoophiles.
