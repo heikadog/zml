@@ -15,7 +15,7 @@ You can submit accounts to the list, request to be removed from the list, or sub
 
 To be added to the list, candidates should meet at least one or more of these criteria:
 
-1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name like \*.zoo.wtf, \*.zoo.and.me, \*.zooey.pub, or \*.zoofurs.net.
+1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name.
 2. Actively interacting with open zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large number of open zoophiles.
 3. Supporting or defending zoophiles or their associates, or creating spaces that welcome zoophiles.
 4. Being publicly identified as a zoophile by a reputable whistleblower, or being found participating in conversations which advocate for or admit to zoophilic acts.
@@ -27,7 +27,7 @@ Some additional information:
 - We recognize that drawing or supporting feral NSFW isn't automatically condoning zoophilia, so we don't add feral NSFW artists or their supporters to the list unless there's evidence they are zoophiles or actively interact with them. Additionally, even though zoophiles continually use the label as a cover, we also apply this same sentiment to therians.
 - "Known" zoophiles are people who were outed as zoophiles, while "open" zoophiles embrace the label—these terms are not interchangeable.
 - The mute list document occasionally sources from whistleblowers who specialize in reporting on zoophilia like ExposeTheFV and ConStaffWatch. We've gone on record to call these accounts "reputable whistleblowers," even carving out criteria in the list document for these accounts. The mute list team defines a "reputable" whistleblower as an account with a proven track record of gathering and presenting strong, verifiable evidence related to zoophiles, such as archived snapshots of websites or screenshots they take themselves. Additionally, whistleblowers we cite in the list document have demonstrated a nuanced understanding of paraphilias, accurately and reliably reporting on harmful individuals while also placing an emphasis on harm reduction. And, if and when they make an error-in-fact, they have also issued retractions.
-- All relevant links to evidence are archived on <https://archive.today> in the event that they go down or change for any reason, we make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
+- All relevant links to evidence are archived on <https://archive.today> in the event that they go down or change for any reason. We make a deliberate effort to capture our own high-quality screenshots instead of sourcing them from elsewhere.
 
 These stipulations prevent innocent people from being unfairly put on the list, as we're aware these are serious accusations that can ruin a person's reputation and should not be taken lightly.
 
