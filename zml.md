@@ -354,3 +354,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 285. AnnieGal (@anniegalla.bsky.social/@anniegaiia.bsky.social) and milkbone (@milkbone.bsky.social) follow open zoophiles.
 286. Shadow (@closingdistance.bsky.social) supports open zoophiles. In particular, they reposted a meme from a zoophile with the caption, "When all your friends have [the Greek zeta] in their username": (<https://archive.today/gXNl7>)
 287. Ōmori (@oumorigin.bsky.social) has asked multiple zoophiles to talk to them about zoophilia: (<https://archive.today/Ublol>). Additionally, they follow multiple zoophiles.
+288. 336._.Fang (@336fang.bsky.social) follows open zoophiles.
+289. Baphomet (@zooandme.bsky.social), Mavrick (@mavrickz.bsky.social), Zip (@furryzip.bsky.social), and Randans (@randasss.bsky.social) are open zoophiles.
