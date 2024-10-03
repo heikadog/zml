@@ -356,4 +356,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 287. Ōmori (@oumorigin.bsky.social) has asked multiple zoophiles to talk to them about zoophilia: (<https://archive.today/Ublol>). Additionally, they follow multiple zoophiles.
 288. 336._.Fang (@336fang.bsky.social) follows open zoophiles.
 289. Baphomet (@zooandme.bsky.social), Mavrick (@mavrickz.bsky.social), Zip (@furryzip.bsky.social), Randans (@randasss.bsky.social), Mommy_Loona (@mommy-loona.bsky.social), mei (@d0llnni.bsky.social), Ma (@zooeyma.bsky.social), Res (@res-est-hic.bsky.social), Derp Doggo (@derpdoggo.bsky.social), zetayeenboi (@zetayeenboi.bsky.social), Just a doggo (@justadoggo.bsky.social), and levit666 (@levit666.bsky.social) are open zoophiles.
-290. Golden Skye (@goldensky32.bsky.social), rul54 (@rul54.bsky.social), and Lachina (@lachina.bsky.social) follow several open zoophiles.
+290. Golden Skye (@goldensky32.bsky.social), rul54 (@rul54.bsky.social), Lachina (@lachina.bsky.social), and Cane (@canepanal.bsky.social) follow several open zoophiles.
