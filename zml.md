@@ -120,7 +120,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 54. Kharrs (@kharrs.bsky.social)'s only follow is an open zoophile.
 55. RoxyMoxye (@roxymoxye.bsky.social), bear (@davidbear.bsky.social), Woofingfox (@woofingfox.bsky.social), and Thunder Roodog (@thunderroo.bsky.social) follow and interact with open zoophiles.
 56. Rox (@roxanathewolf.bsky.social) is an open zoophile.
-57. Jade (@jadeeyedwere.bsky.social) only follows zoophiles. Additionally, she's dating an open zoophile.
+57. Jade (@jadeeyedwere.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.ph/X97XI>) and they follow open zoophiles on Bluesky.
 58. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles.
 59. PsychedelicYops (@psychedelicyops.pet) follows several closeted zoophiles and liked a post from WolfJLupus, an open zoophile: (<https://archive.today/TSJ7J>).
 60. void (@puppyvoid.bsky.social) follows several open zoophiles.
@@ -354,5 +354,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 285. Shadow (@closingdistance.bsky.social) supports open zoophiles. In particular, they reposted a meme from a zoophile with the caption, "When all your friends have [the Greek zeta] in their username": (<https://archive.today/gXNl7>)
 286. Ōmori (@oumorigin.bsky.social) has asked multiple zoophiles to talk to them about zoophilia: (<https://archive.today/Ublol>). Additionally, they follow multiple zoophiles.
 287. 336.\_.Fang (@336fang.bsky.social) follows open zoophiles.
-288. Baphomet (@zooandme.bsky.social), Mavrick (@mavrickz.bsky.social), Zip (@furryzip.bsky.social), Randans (@randasss.bsky.social), Mommy_Loona (@mommy-loona.bsky.social), mei (@d0llnni.bsky.social), Ma (@zooeyma.bsky.social), Res (@res-est-hic.bsky.social), Derp Doggo (@derpdoggo.bsky.social), zetayeenboi (@zetayeenboi.bsky.social), Just a doggo (@justadoggo.bsky.social), levit666 (@levit666.bsky.social), and Red Breebah (@redbreebah.bsky.social) are open zoophiles.
+288. Baphomet (@zooandme.bsky.social), Mavrick (@mavrickz.bsky.social), Zip (@furryzip.bsky.social), Randans (@randasss.bsky.social), Mommy_Loona (@mommy-loona.bsky.social), mei (@d0llnni.bsky.social), Ma (@zooeyma.bsky.social), Res (@res-est-hic.bsky.social), Derp Doggo (@derpdoggo.bsky.social), zetayeenboi (@zetayeenboi.bsky.social), Just a doggo (@justadoggo.bsky.social), levit666 (@levit666.bsky.social), Red Breebah (@redbreebah.bsky.social), and draya (@wonhohot.bsky.social) are open zoophiles.
 289. Golden Skye (@goldensky32.bsky.social), rul54 (@rul54.bsky.social), Lachina (@lachina.bsky.social), and Cane (@canepanal.bsky.social) follow several open zoophiles.
