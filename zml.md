@@ -120,7 +120,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 54. Kharrs (@kharrs.bsky.social)'s only follow is an open zoophile.
 55. RoxyMoxye (@roxymoxye.bsky.social), bear (@davidbear.bsky.social), Woofingfox (@woofingfox.bsky.social), and Thunder Roodog (@thunderroo.bsky.social) follow and interact with open zoophiles.
 56. Rox (@roxanathewolf.bsky.social) is an open zoophile.
-57. Jade (@jadeeyedwere.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.ph/X97XI>) and they follow open zoophiles on Bluesky.
+57. Jade (@jadeeyedwere.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.ph/X97XI>), they follow open zoophiles on Bluesky, and they're dating an open zoophile.
 58. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles.
 59. PsychedelicYops (@psychedelicyops.pet) follows several closeted zoophiles and liked a post from WolfJLupus, an open zoophile: (<https://archive.today/TSJ7J>).
 60. void (@puppyvoid.bsky.social) follows several open zoophiles.
