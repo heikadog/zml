@@ -117,7 +117,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 51. Dirt Coyote (@dirtcoyote.bsky.social) was found following the previously-mentioned animal sexual abuse account, @olHowlnGrowl, on their private AD: (<https://archive.today/rYDCV>) and infamously said "please do not forget me" in response to someone compiling screenshots of people who supported known zoophile Wild_Life: (<https://archive.today/RtNJw>). They also follow known zoophiles.
 52. Stripeybutt (@stripeybutt.bsky.social) had an account on a now-defunct animal sexual abuse forum under the name "Streakthetiger": (<https://archive.today/euCvd>) Their LiveJournal showed a tiger with green hair under this alias: (<https://archive.today/tt1a>) and their FurAffinity shows the same tiger with a different hair color: _[CW for NSFW content.]_ (<https://archive.today/VWvNV>)
 53. Kane (@canidliker.bsky.social) is an open zoophile.
-54. Kharrs (@kharrs.bsky.social)'s only follow is an open zoophile.
+54. Kharrs (@kharrs.bsky.social) is an open zoophile on multiple bestiality forums: (<https://archive.today/Vdw7e>).
 55. RoxyMoxye (@roxymoxye.bsky.social), bear (@davidbear.bsky.social), Woofingfox (@woofingfox.bsky.social), and Thunder Roodog (@thunderroo.bsky.social) follow and interact with open zoophiles.
 56. Rox (@roxanathewolf.bsky.social) is an open zoophile.
 57. Jade (@jadeeyedwere.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.ph/X97XI>), they follow open zoophiles on Bluesky, and they're dating an open zoophile.
