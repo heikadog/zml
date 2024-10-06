@@ -358,3 +358,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 289. Golden Skye (@goldensky32.bsky.social), rul54 (@rul54.bsky.social), Lachina (@lachina.bsky.social), and Cane (@canepanal.bsky.social) follow several open zoophiles.
 290. ThatDustyDog (@tddog.bsky.social) is an open zoophile, but doesn't have the zeta in their Bluesky profile: (<https://archive.today/lSjsM>).
 291. Cheski (@chezetaki.bsky.social) is an open zoophile.
+292. Nezuko (@nxzukokamado.bsky.social) is an open zoophile: (<https://archive.today/QRH7s>)
