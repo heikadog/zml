@@ -358,3 +358,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 290. ThatDustyDog (@tddog.bsky.social) is an open zoophile, but doesn't have the zeta in their Bluesky profile: (<https://archive.today/lSjsM>).
 291. Cheski (@chezetaki.bsky.social) is an open zoophile.
 292. Nezuko (@nxzukokamado.bsky.social) is an open zoophile: (<https://archive.today/QRH7s>)
+293. Tebya (@tebya.bsky.social) is an open zoophile.
