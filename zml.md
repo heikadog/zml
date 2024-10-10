@@ -359,5 +359,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 291. Cheski (@chezetaki.bsky.social) is an open zoophile.
 292. Nezuko (@nxzukokamado.bsky.social) is an open zoophile: (<https://archive.today/QRH7s>)
 293. Tebya (@tebya.bsky.social), Le Guy (@zooeyzorro.bsky.social), and AnonymousDerg (@anonymousderg.bsky.social) are open zoophiles.
-294. Dawgy (@very.noisy.dog) and Zetafloofz (@zetafloofz.bsky.social) follow open zoophiles.
-295. palletzer (@palletzer.bsky.social) and ZooKitty (@zookitty.bsky.social) are open zoophiles.
+294. Dawgy (@very.noisy.dog), Zetafloofz (@zetafloofz.bsky.social), and zetacookies (@zetacookies.bsky.social) follow open zoophiles.
+295. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), Zetawolf (@zetapaw.bsky.social), and mdouz (@mdouz.bsky.social) are open zoophiles.
