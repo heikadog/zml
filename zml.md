@@ -360,4 +360,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 292. Nezuko (@nxzukokamado.bsky.social) is an open zoophile: (<https://archive.today/QRH7s>)
 293. Tebya (@tebya.bsky.social), Le Guy (@zooeyzorro.bsky.social), and AnonymousDerg (@anonymousderg.bsky.social) are open zoophiles.
 294. Dawgy (@very.noisy.dog), Zetafloofz (@zetafloofz.bsky.social), zetacookies (@zetacookies.bsky.social) and mdouz (@mdouz.bsky.social) follow open zoophiles.
-295. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), and Zetawolf (@zetapaw.bsky.social) are open zoophiles.
+295. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), and Zetawolf (@zetapaw.bsky.social)  are open zoophiles.
