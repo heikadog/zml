@@ -283,7 +283,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 215. FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), and Vandal (@stupidgirlthing.bsky.social) are open zoophiles.
 216. Toxic (@baxterartworks.com) follows open and known zoophiles.
 217. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), and Rosielynn (@rosielynn.bsky.social) are open zoophiles.
-218. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Zarky (@zarkyzeta.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
+218. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Termina (@terminapwoto.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
 219. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 220. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia": (<https://bsky.app/profile/abominablight.bsky.social/post/3kkilrdlnus26>)
 221. Jamie Sharp (@jamiesharp.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
@@ -361,3 +361,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 293. Tebya (@tebya.bsky.social), Le Guy (@zooeyzorro.bsky.social), and AnonymousDerg (@anonymousderg.bsky.social) are open zoophiles.
 294. Dawgy (@very.noisy.dog), Zetafloofz (@zetafloofz.bsky.social), zetacookies (@zetacookies.bsky.social) and mdouz (@mdouz.bsky.social) follow open zoophiles.
 295. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), Zetawolf (@zetapaw.bsky.social), thato (@thato12351151.bsky.social), and Jelix (@jelixcat.bsky.social) are open zoophiles.
+296. Zarky (@zarkyzeta.bsky.social) is an open zoophile. They referred to a meme claiming zoophiles and therians were the same thing as "one of our [memes]" in a conversation with zoophiles: (<https://archive.today/lPD8X>)
