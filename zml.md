@@ -32,7 +32,12 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 
 ## Evidence
 
+<details>
+<summary>
+
 **Content warning:** Some of these links include censored, but still explicit animal sexual abuse media—proceed with caution.
+
+</summary>
 
 1. (There were other furries in this thread, but I'll only be focusing on the people on the mute list with Bluesky accounts. Assume fully censored or blacked-out screenshots in the thread to be explicit animal sexual abuse media; these are not blank tweets.)
 
@@ -357,3 +362,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 289. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), Zetawolf (@zetapaw.bsky.social), thato (@thato12351151.bsky.social), and Jelix (@jelixcat.bsky.social) are open zoophiles.
 290. Zarky (@zarkyzeta.bsky.social) is an open zoophile. They referred to a meme claiming zoophiles and therians were the same thing as "one of our [memes]" in a conversation with zoophiles: (<https://archive.today/lPD8X>)
 291. Local (@localzeta.bsky.social) and Pervysub (@pervysub.bsky.social) are open zoophiles.
+
+</details>
