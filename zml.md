@@ -32,7 +32,8 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 
 ## Evidence
 
-**Content warning:** Some of these links include censored, but still explicit animal sexual abuse media—proceed with caution.
+> [!CAUTION]
+> Some of these links include censored, but still explicit animal sexual abuse media—proceed with caution.
 
 1. (There were other furries in this thread, but I'll only be focusing on the people on the mute list with Bluesky accounts. Assume fully censored or blacked-out screenshots in the thread to be explicit animal sexual abuse media; these are not blank tweets.)
 
