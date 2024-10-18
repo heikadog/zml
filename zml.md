@@ -361,3 +361,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 292. Local (@localzeta.bsky.social) and Pervysub (@pervysub.bsky.social) are open zoophiles.
 293. Calypso (@calypsoreturns.bsky.social) and Kitsunegi Blaze (@kitsunegi-blaze.bsky.social) follow open zoophiles.
 294. Epiphiny (@epiphiny.bsky.social), thatweirdcat (@thatweirdcat.bsky.social), Sebz (@sebz-zeta.bsky.social), Melody (@melmelody8.bsky.social), Konny (@konnybcollie.bsky.social), and mmotley (@mmotley.bsky.social) are open zoophiles.
+295. Arlaux (@osteophilia.bsky.social) supports zoophilia. It made a thread reminiscing about an alleged time someone could "just go to r/therian and openly be a zoo and nobody would be upset because obviously if you identify as an animal there is a higher likelihood you will be attracted to that animal", later making a comparison between zoophilia and Nazi Germany: (<https://archive.today/z0gYQ>).
