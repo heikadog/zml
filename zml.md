@@ -360,4 +360,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 291. Zarky (@zarkyzeta.bsky.social) is an open zoophile. They referred to a meme claiming zoophiles and therians were the same thing as "one of our [memes]" in a conversation with zoophiles: (<https://archive.today/lPD8X>)
 292. Local (@localzeta.bsky.social) and Pervysub (@pervysub.bsky.social) are open zoophiles.
 293. Calypso (@calypsoreturns.bsky.social) and Kitsunegi Blaze (@kitsunegi-blaze.bsky.social) follow open zoophiles.
-294. Epiphiny (@epiphiny.bsky.social), thatweirdcat (@thatweirdcat.bsky.social), Sebz (@sebz-zeta.bsky.social), and Melody (@melmelody8.bsky.social) are open zoophiles.
+294. Epiphiny (@epiphiny.bsky.social), thatweirdcat (@thatweirdcat.bsky.social), Sebz (@sebz-zeta.bsky.social), Melody (@melmelody8.bsky.social), and Konny (@konnybcollie.bsky.social) are open zoophiles.
