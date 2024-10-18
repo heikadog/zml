@@ -260,7 +260,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 191. Miles (@milesthezshep.bsky.social) is an open zoophile.
 192. Rosa The Puppy (@snowythepuppy.bsky.social), goldenshep (@goldenshep.bsky.social), vulirinmo (@vulirinmo.bsky.social), Morg (@monsterlayer.bsky.social), Mango (@mangoking.bsky.social), and wlightning245 (@wlightning245.bsky.social) follow open zoophiles.
 193. K9Nomad (@k9nomad.zoofurs.net) and Quetzal (@quetzalkreep.bsky.social) are open zoophiles.
-194. hothorses (@hothorses.bsky.social), Forest (@vesperthefluff.bsky.social), and Lycaon_Zathura (lycaonzathura.bsky.social) follow open zoophiles.
+194. hothorses (@hothorses.bsky.social), and Forest (@vesperthefluff.bsky.social)  follow open zoophiles.
 195. Rax (@raxrex.bsky.social), ZetaWolf (@zetawolf21.zoofurs.net), Sirius GSD (@siriusgsd.bsky.social), and zoosadism (@zoosadism.bsky.social) are open zoophiles.
 196. Hippie Grandpa (@hippiepappa.bsky.social) follows open zoophiles.
 197. UnusualHorse (@unusualhorse.bsky.social), Kazuma (@kazumathehorse.bsky.social), and RealGrayWoof (@realgraywoof.bsky.social) are open zoophiles.
@@ -359,4 +359,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 290. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), Zetawolf (@zetapaw.bsky.social), thato (@thato12351151.bsky.social), and Jelix (@jelixcat.bsky.social) are open zoophiles.
 291. Zarky (@zarkyzeta.bsky.social) is an open zoophile. They referred to a meme claiming zoophiles and therians were the same thing as "one of our [memes]" in a conversation with zoophiles: (<https://archive.today/lPD8X>)
 292. Local (@localzeta.bsky.social) and Pervysub (@pervysub.bsky.social) are open zoophiles.
-293. Calypso (@calypsoreturns.bsky.social) interacts with zoophiles.
+293. Calypso (@calypsoreturns.bsky.social) and Kitsunegi Blaze (@kitsunegi-blaze.bsky.social) follow open zoophiles.
