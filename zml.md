@@ -246,8 +246,8 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 177. Skydog (@skyk9.bsky.social) is an open zoophile.
 178. GetRaccd (@raccooneggs.bsky.social) follows open zoophiles.
 179. Ashe FoxD (@ashefoxd.bsky.social) is dating Thera, an open zoophile.
-180. dogoflife (@dogoflife.bsky.social), k969 (@k969.bsky.social), Zoomy Cat (@zoomycat.bsky.social), high4lifedude (@high4lifedude.bsky.social), Degen (@iamadegen.bsky.social), and howler (@howlerzeta.bsky.social) are open zoophiles.
-181. SexualizedPonies (@sexualizedpony.bsky.social), 0ffbrand (@0ffbrand.bsky.social), and phiner (@phiner.bsky.social) follow open zoophiles.
+180. dogoflife (@dogoflife.bsky.social), k969 (@k969.bsky.social), Zoomy Cat (@zoomycat.bsky.social), high4lifedude (@high4lifedude.bsky.social), Degen (@iamadegen.bsky.social), howler (@howlerzeta.bsky.social), and 0ffbrand (@0ffbrand.bsky.social) are open zoophiles.
+181. SexualizedPonies (@sexualizedpony.bsky.social), and phiner (@phiner.bsky.social) follow open zoophiles.
 182. ScarredLion (@scarredlion.bsky.social), joejoe (@joejoe4games.bsky.social), Kas (@boytiger.bsky.social), Pup Shadow (@woofpupshadowsf.bsky.social), and h1fur (@h1fur.bsky.social) follow open zoophiles.
 183. A Logical Thylacine (@logicthylacine.bsky.social) is an open zoophile. Even though the account is locked, their Twitter bio has a particular series of coded symbols that act as shorthand for their experiences with zoophilia, otherwise known as a "Zoo Code": (<https://archive.today/P1gjr>). _[It wasn't archived, but we should note the same code format was also on Thera's profile before it got suspended.]_ They also only follow open zoophiles.
 184. Cozmos Fox (@cozmosfox.bsky.social) and Queen Cozy Glow (@zooqueen.bsky.social) are open zoophiles.
