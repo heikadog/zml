@@ -370,4 +370,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 301. WasHere098 (@washere098.bsky.social) is an open zoophile: (<https://archive.today/IjykK>).
 302. popcoals (@popcoals.bsky.social) is an open zoophile. They asked for a "zoophile hypnosis GIF," referring to people who are against zoophilia as "antis:" (<https://archive.today/mdEmm>)
 303. NoxyMe (@noxyme.bsky.social), drew (@deadpuppygirl.bsky.social), milk belly (@100buttholes.bsky.social), Perv Julie (@julieisaperv.bsky.social), duckliker69 (@pissfreak.cub.porn), MilkBark (@milkbark.bsky.social), KB (@kilobitten.bsky.social), ponyfag (@ponyfag.bsky.social), stinkyskunkgrl (@stinkyskunkgrl.bsky.social), and chandrikalinka (@chandrikalinka.bsky.social) follow open zoophiles.
-304. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>)
+304. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
+305. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
