@@ -373,4 +373,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 304. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
 305. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
 306. ukdem (@ukdem.bsky.social), sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), and DOGBOY (@shinyespeon.bsky.social) follow open zoophiles.
-307. seba (@cetophilia.bsky.social) is an open zoophile.
+307. seba (@cetophilia.bsky.social) and dawgdaddy (@dawgdaddy.bsky.social) are open zoophiles.
