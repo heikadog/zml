@@ -372,5 +372,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 303. NoxyMe (@noxyme.bsky.social), drew (@deadpuppygirl.bsky.social), milk belly (@100buttholes.bsky.social), Perv Julie (@julieisaperv.bsky.social), duckliker69 (@pissfreak.cub.porn), MilkBark (@milkbark.bsky.social), KB (@kilobitten.bsky.social), ponyfag (@ponyfag.bsky.social), stinkyskunkgrl (@stinkyskunkgrl.bsky.social), and chandrikalinka (@chandrikalinka.bsky.social) follow open zoophiles.
 304. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
 305. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
-306. ukdem (@ukdem.bsky.social), sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), DOGBOY (@shinyespeon.bsky.social), and FaberTheNeko (@fabertheneko.bsky.social) follow open zoophiles.
+306. ukdem (@ukdem.bsky.social), sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), DOGBOY (@shinyespeon.bsky.social), FaberTheNeko (@fabertheneko.bsky.social), and sillylittlegoober (@sillylittlegoober.bsky.social) follow open zoophiles.
 307. seba (@cetophilia.bsky.social) and dawgdaddy (@dawgdaddy.bsky.social) are open zoophiles.
