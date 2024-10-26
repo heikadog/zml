@@ -377,4 +377,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 308. Luna (@zetaluna.bsky.social), Yage (@yage11.bsky.social), Toxic_Vezzel (@toxicvz.bsky.social), fern (@lakeofsins.bsky.social), Dumb Dog (@dum-d0g.bsky.social), Ruin Seeker (@errisessel.bsky.social), ZuuBoy2k (@zuuboy2k.bsky.social), Lykon (@lykon.bsky.social), and Shiv (@shiv950.bsky.social) are open zoophiles.
 309. RachelTheFictionkin (@rachelgardner.bsky.social) is a zoophile, according to her own admission: (<https://archive.today/d3xZw>).
 310. Exotic Erotics (@exotic-erotics.bsky.social) is a manufacturer of sex toys. It uses lifecasting to manufacture its toys, which involves directly modeling the toys after an a real animal's genitals by stimulating and 3D scanning the animal's genitals. This is unethical.
-311. Dyl (@kinkybrowntwink.bsky.social) and Silly (@sillysinister.bsky.social) are open zoophiles.
+311. Dyl (@kinkybrowntwink.bsky.social), Silly (@sillysinister.bsky.social), and Synesthesia (@synesthesiacoyote.bsky.social) are open zoophiles.
