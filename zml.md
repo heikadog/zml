@@ -379,4 +379,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 310. Exotic Erotics (@exotic-erotics.bsky.social) is a manufacturer of sex toys. It uses lifecasting to manufacture its toys, which involves directly modeling the toys after an a real animal's genitals by stimulating and 3D scanning the animal's genitals. This is unethical.
 311. Dyl (@kinkybrowntwink.bsky.social), Silly (@sillysinister.bsky.social), Synesthesia (@synesthesiacoyote.bsky.social), Mother (@astranovella.bsky.social), Mud (@muttmud.bsky.social), Dutch Otter (@bottomotter91.bsky.social), and puff (@blinkybutt.bsky.social) are open zoophiles.
 312. Zoosexual Labeling Service is a zoophilic labeller that labels zoophiles. To protect our users and cull a potential network effect, we've taken an additional step to hide this labeller for all Laelaps subscribers in addition to labelling and listing.
-313. Wenda (@necroventi.bsky.social) is an open zoophile.
+313. Wenda (@necroventi.bsky.social), and lai (kittykatlover.bsky.social) are open zoophiles.
