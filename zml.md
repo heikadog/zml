@@ -47,7 +47,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
    AkariHusky has a large amount of evidence against him, most of which can be viewed here if you have Telegram: (<https://t.me/AkariHuskyZoophile>) Along with directly supporting zoophilia and being an open zoophile for years, Akari also had an AD dedicated to his dog where he posted explicit animal sexual abuse media of the dog. In 2015, he said in a reply that he "wouldn't wish being zoo upon anyone," direct confirmation that he is a zoophile.
 3. _[CW in the first link for explicit nudes and censored animal sexual abuse media.]_
    Among a mountain of other accusations like calling the act of holding people accountable for zoophilia an "SJW crusade" and liking a post on his AD which linked to a peer-to-peer mirror of animal sexual abuse media in 2013 (<https://twitter.com/itsjustathingy/status/1406230343426977793>), Cenny (@cenny.bsky.social/@cennyad.bsky.social) had the zeta symbol in his bio in 2016: (<https://twitter.com/cennyarchive/status/1566884973440811009>) and was caught liking explicit animal sexual abuse media on his AD (<https://twitter.com/cennyarchive/status/1566885691170197504>). In addition, he was explicitly mentioned as a zoophile in the zoosadism leaks in 2017: (<https://archive.today/zlA4O>).
-4. Tarro (@tarro.zooey.pub) is an open zoophile. They were seen interacting with Akari: (<https://bsky.app/profile/tarro.zooey.pub/post/3k3cx4o7iz52h>).
+4. Tarro (@tarro.zdu.se) is an open zoophile. They were seen interacting with Akari: (<https://bsky.app/profile/tarro.zooey.pub/post/3k3cx4o7iz52h>).
 5. Papa Rhino (@paparhino.dad/@papamord.bsky.social) is a zoophile. I worked on an outing about him with reputable whistleblower ExposeTheFV, linking him to his alt, JDonk (@zooeydonk.bsky.social), and showing he's a zoophile (and has publicly interacted with minors as young as 14): (<https://twitter.com/ExposeTheFV/status/1730851018416771097>). He even liked a reply to JDonk's tweet _about_ JDonk being Rhino: (<https://twitter.com/ExposeTheFV/status/1730851024393691197>).
 6. Soren (@feral4feral.art) is an open zoophile.
 7. Lukar (@lukar.feral.army) follows and interacts with open zoophiles: (<https://archive.ph/NNeP5>).
@@ -151,7 +151,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 85. Kaie (@yooooote.bsky.social) follows open zoophiles. Additionally, they bought a badge from Birtyfur: (<https://bsky.app/profile/kaieyote.bsky.social/post/3k6r6bz737726>), who frequently draws icons for and publicly associates with zoophiles: (<https://twitter.com/ExposeTheFV/status/1684853358593798144>).
 86. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
 87. Sukie (@sukie.bsky.social) follows open zoophiles.
-88. zooey.pub (@zooey.pub) is a zoophilic magazine.
+88. Zooey Dot Pub (@zooeydotpub.zdu.se) is a zoophilic magazine.
 89. Doughnuts (@doughnutzooey.bsky.social) is an open zoophile.
 90. zenixhyena (@zenixhyena.bsky.social) and madhuaka (@madhuaka.bsky.social) follow open zoophiles.
 91. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), Salk (@salkott.bsky.social), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
