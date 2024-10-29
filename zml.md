@@ -369,7 +369,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 300. cookieott (@cookieott.bsky.social), coyoteboybark (@coyoteboybark.bsky.social), and Sykon (@nordicskunk.bsky.social) follow open zoophiles.
 301. WasHere098 (@washere098.bsky.social) is an open zoophile: (<https://archive.today/IjykK>).
 302. popcoals (@popcoals.bsky.social) is an open zoophile. They asked for a "zoophile hypnosis GIF," referring to people who are against zoophilia as "antis:" (<https://archive.today/mdEmm>)
-303. NoxyMe (@noxyme.bsky.social), drew (@deadpuppygirl.bsky.social), milk belly (@100buttholes.bsky.social), Perv Julie (@julieisaperv.bsky.social), duckliker69 (@pissfreak.cub.porn), MilkBark (@milkbark.bsky.social), KB (@kilobitten.bsky.social), ponyfag (@ponyfag.bsky.social), stinkyskunkgrl (@stinkyskunkgrl.bsky.social), and chandrikalinka (@chandrikalinka.bsky.social) follow open zoophiles.
+303. NoxyMe (@noxyme.bsky.social), drew (@deadpuppygirl.bsky.social), milk belly (@100buttholes.bsky.social), Perv Julie (@julieisaperv.bsky.social), duckliker69 (@pissfreak.cub.porn), MilkBark (@milkbark.bsky.social), KB (@kilobitten.bsky.social), stinkyskunkgrl (@stinkyskunkgrl.bsky.social), and chandrikalinka (@chandrikalinka.bsky.social) follow open zoophiles.
 304. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
 305. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
 306. ukdem (@ukdem.bsky.social), sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), DOGBOY (@shinyespeon.bsky.social), FaberTheNeko (@fabertheneko.bsky.social), and sillylittlegoober (@sillylittlegoober.bsky.social) follow open zoophiles.
@@ -380,3 +380,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 311. Dyl (@kinkybrowntwink.bsky.social), Silly (@sillysinister.bsky.social), Synesthesia (@synesthesiacoyote.bsky.social), Mother (@astranovella.bsky.social), Mud (@muttmud.bsky.social), Dutch Otter (@bottomotter91.bsky.social), and puff (@blinkybutt.bsky.social) are open zoophiles.
 312. To protect our users and cull a potential network effect, we've hidden a pro-zoophile labeller for all Laelaps subscribers in addition to labelling and listing.
 313. Wenda (@necroventi.bsky.social), lai (kittykatlover.bsky.social), GineFloki (ginef.bsky.social), and Spike (spike-morningstar.bsky.social) are open zoophiles.
+314. cutiepiezoo (@cutiepiezoo.bsky.social) and Rutger (@willowshroom.bsky.social) follow open zoophiles.
+315. Lucky the Wolf (@luckytheluckless.bsky.social), DogRed (goldenred.bsky.social), Sub Woofer (@bigsubwoofer.bsky.social), and ponyfag (@ponyfag.bsky.social) are open zoophiles.
+316. Fumei (@choufumei.bsky.social) is a self-admitted open zoophile: (<https://archive.today/LRxDT>).
+317. Anti Wholesome Task Force (@anti-wholesome.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
