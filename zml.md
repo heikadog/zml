@@ -261,7 +261,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 192. Rosa The Puppy (@snowythepuppy.bsky.social), goldenshep (@goldenshep.bsky.social), vulirinmo (@vulirinmo.bsky.social), Morg (@monsterlayer.bsky.social), Mango (@mangoking.bsky.social), and wlightning245 (@wlightning245.bsky.social) follow open zoophiles.
 193. K9Nomad (@k9nomad.zoofurs.net) and Quetzal (@quetzalkreep.bsky.social) are open zoophiles.
 194. hothorses (@hothorses.bsky.social), and Forest (@vesperthefluff.bsky.social)  follow open zoophiles.
-195. Rax (@raxrex.bsky.social), ZetaWolf (@zetawolf21.zoofurs.net), Sirius GSD (@siriusgsd.bsky.social), and zoosadism (@zoosadism.bsky.social) are open zoophiles.
+195. Rax (@raxrex.bsky.social), ZetaWolf (@zetawolf21.zoofurs.net), and Sirius GSD (@siriusgsd.bsky.social) are open zoophiles.
 196. Hippie Grandpa (@hippiepappa.bsky.social) follows open zoophiles.
 197. UnusualHorse (@unusualhorse.bsky.social), Kazuma (@kazumathehorse.bsky.social), and RealGrayWoof (@realgraywoof.bsky.social) are open zoophiles.
 198. wufferz (@wufferz.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.today/bSV84>) and they follow open zoophiles on Bluesky.
@@ -384,4 +384,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 315. Lucky the Wolf (@luckytheluckless.bsky.social), DogRed (goldenred.bsky.social), Sub Woofer (@bigsubwoofer.bsky.social), and ponyfag (@ponyfag.bsky.social) are open zoophiles.
 316. Fumei (@choufumei.bsky.social) is a self-admitted open zoophile: (<https://archive.today/LRxDT>).
 317. Anti Wholesome Task Force (@anti-wholesome.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
-318. Manure Wake (@manurewake.bsky.social) is an open zoophile.
+318. Manure Wake (@manurewake.bsky.social), alice (@sistergirlfriend.bsky.social), and dsilvaj42 (@dsilvaj42.bsky.social) are open zoophiles.
+319. Medical Malpractice (@zoosadism.bsky.social) supports zoophiles.
