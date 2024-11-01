@@ -384,4 +384,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 315. Fumei (@choufumei.bsky.social) is a self-admitted open zoophile: (<https://archive.today/LRxDT>).
 316. Anti Wholesome Task Force (@anti-wholesome.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
 317. Manure Wake (@manurewake.bsky.social), alice (@sistergirlfriend.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
-318. Medical Malpractice (@zoosadism.bsky.social) supports zoophiles.
+318. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
+319. kitten666 (@kitten666.bsky.social), philophile (@philophile.bsky.social), and kittnpaws (@kittnpaws.bsky.social) follow open zoophiles.
