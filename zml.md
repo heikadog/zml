@@ -387,3 +387,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 318. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
 319. kitten666 (@kitten666.bsky.social), philophile (@philophile.bsky.social), kittnpaws (@kittnpaws.bsky.social), and Pencil (@pencil-by-pencil.bsky.social) follow open zoophiles.
 320. kore p (@badcreature04.bsky.social) and CuteVulpixLover (@cutevulpixlover.bsky.social) are open zoophiles.
+321. Saturn (@firmamentsys.bsky.social) supports and follows open zoophiles. It should be noted that she commissioned her profile picture from an open zoophile, Soren—judging from her "pro-para (pro-paraphilia)" stance, it's reasonable to assume she knew Soren was a zoophile.
