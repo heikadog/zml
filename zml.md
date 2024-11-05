@@ -391,4 +391,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 322. Frankie (@fr4nkie.bsky.social) is an open zoophile: (<https://archive.today/HV21l>).
 323. max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
 324. snuggy (@snuggyy.bsky.social) follows open zoophiles.
-325. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Moth (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), and CoffeeDraggy (@coffeethedragon.bsky.social) are open zoophiles.
+325. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Moth (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), CoffeeDraggy (@coffeethedragon.bsky.social), poppy (@cutiepatotiebat.bsky.social), and Kurtis (@kurtlolly.bsky.social) are open zoophiles.
