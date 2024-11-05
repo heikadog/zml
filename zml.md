@@ -340,7 +340,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 271. b3an1 (@b3an1.bsky.social) follows open zoophiles.
 272. Malique (@malique88.bsky.social) is an open zoophile.
 273. Valais/Fwucky (@valais.bsky.social/@fwucky.art/@baaboyz.bsky.social) is an open zoophile, according to a Fediverse instance: (<https://archive.today/uB2EG>) He posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
-274. Emberlynns (@emberlynns.bsky.social), CoffeeDraggy (@coffeethederg.bsky.social), Aurorus (@zoofoxpunched.bsky.social), yomama33 (@yomama33.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), ManuMare (@manumare.bsky.social), Rinko (@rinko-horsey.bsky.social), and Ravel (@noxxthesuccubus.bsky.social) are open zoophiles.
+274. Emberlynns (@emberlynns.bsky.social), Aurorus (@zoofoxpunched.bsky.social), yomama33 (@yomama33.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), ManuMare (@manumare.bsky.social), Rinko (@rinko-horsey.bsky.social), and Ravel (@noxxthesuccubus.bsky.social) are open zoophiles.
 275. Windswept Canopies (@windsweptcanopies.bsky.social), draconicnmamateur (@draconicmamateur.bsky.social), Crimson (@sweet-crimson.bsky.social), christinoaugusto (@christinoaugusto.bsky.social), and Gylan (@gylan.bsky.social) follow open zoophiles.
 276. Pferdefreund (@pferd.bsky.social), SomeoneOwO (@meowser1.bsky.social), Loba Vermelha (@goennering.bsky.social), Kitsune (@kitsune27.bsky.social), Olive (@fantasyturigirl.bsky.social), Carodenius (@carodenius.bsky.social), Taco (@1-taco-1.bsky.social), lucas (@changooneer.bsky.social), and AeroDaWolf (@chonchob.bsky.social) are open zoophiles.
 277. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://archive.today/ZeSEl>)
@@ -391,4 +391,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 322. Frankie (@fr4nkie.bsky.social) is an open zoophile: (<https://archive.today/HV21l>).
 323. max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
 324. snuggy (@snuggyy.bsky.social) follows open zoophiles.
-325. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Moth (@canidaeursidae.bsky.social), and yetagainfox (@yetagainfox.bsky.social) are open zoophiles.
+325. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Moth (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), and CoffeeDraggy (@coffeethedragon.bsky.social) are open zoophiles.
