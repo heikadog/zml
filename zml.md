@@ -397,3 +397,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 328. Monody (@rancore202.bsky.social) supports open zoophiles, notably including the Greek zeta dogwhistle for zoophiles in their bio as people who are "welcome".
 329. meow boy (@meowkid.bsky.social) follows open zoophiles.
 330. LazzyLazarus (@lazzylazarus.bsky.social) is an open zoophile: (<https://archive.today/Jfb92>).
+331. Flip (@notailfox.bsky.social) and Senpai Cyn (@senpaicyn.bsky.social) are open zoophiles.
