@@ -293,7 +293,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 224. Hakan (@hakanwillnom.bsky.social) is an alt of Kero The Wolf, a known necrozoosadist with ties to SnakeThing and Tane. Here's two threads with proof that this is actually Kero: (1: <https://twitter.com/KeroArchive/status/1756107775568908601> / 2: <https://twitter.com/DogpatchPress/status/1756253402492023255>).
 225. Nox (@zoosafe.bsky.social) is an open zoophile.
 226. Swifty the Shrew (@menyku.bsky.social) is an open zoophile. This is an archive of a previous callout on xem which shows "zoophile" in xyr bio: (<https://archive.today/j8fbi>).
-227. Michelle (@michellebirb.bsky.social) follows open zoophiles, notably including "M" for "MAP" (minor-attracted person) and "Z" for "zoophile" in their bio as people who are "welcome".
+227. Michelle (@michellebirb.bsky.social) follows open zoophiles, notably including "Z" for "zoophile" in their bio as people who are "welcome."
 228. Fitzgerald (@fitzetagerald.bsky.social), Dog (@dogalongtherock.bsky.social), and Theo Strypetail (@theostrypetail.bsky.social) are open zoophiles.
 229. justaproudtherian (@justaproudtherian.bsky.social) follows Kero and an open zoophile. Notably, when someone suggested more zoophiles should be banned off Bluesky, they asked, "Why? why would you want that?": (<https://archive.today/jvoy2>)
 230. Paul (@webboy42.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as a "zoosexual" on Twitter: (<https://archive.today/jQru6>), and they follow open zoophiles.
@@ -395,3 +395,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 326. Damian (@ultrarq.bsky.social) supports zoophiles: (<https://archive.today/RObU1>).
 327. zekrom93 (@zekrom93.bsky.social) is an open zoophile: (<https://archive.today/ClXGp>).
 328. VVN (@mawjob.bsky.social), arceus93 (@arceus93.bsky.social), Cyno Cedar (@cynocedar.bsky.social), and BunnyBeeZooey (@bunnybeezooey.bsky.social) are open zoophiles.
+329. Monody (@rancore202.bsky.social) follows open zoophiles, notably including the Greek zeta dogwhistle for zoophiles in their bio as people who are "welcome".
