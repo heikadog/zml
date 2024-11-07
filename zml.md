@@ -394,5 +394,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 325. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Moth (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), CoffeeDraggy (@coffeethedragon.bsky.social), poppy (@cutiepatotiebat.bsky.social), Kurtis (@kurtlolly.bsky.social), Jalozo (@jalozo.bsky.social), and lottie (@sloppypawjob.bsky.social) are open zoophiles.
 326. Damian (@ultrarq.bsky.social) supports zoophiles: (<https://archive.today/RObU1>).
 327. zekrom93 (@zekrom93.bsky.social) is an open zoophile: (<https://archive.today/ClXGp>).
-328. VVN (@mawjob.bsky.social), arceus93 (@arceus93.bsky.social), Cyno Cedar (@cynocedar.bsky.social), and BunnyBeeZooey (@bunnybeezooey.bsky.social) are open zoophiles.
+328. VVN (@mawjob.bsky.social), Cyno Cedar (@cynocedar.bsky.social), and BunnyBeeZooey (@bunnybeezooey.bsky.social) are open zoophiles.
 329. Monody (@rancore202.bsky.social) follows open zoophiles, notably including the Greek zeta dogwhistle for zoophiles in their bio as people who are "welcome".
