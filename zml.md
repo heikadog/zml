@@ -386,7 +386,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 317. Manure Wake (@manurewake.bsky.social), alice (@sistergirlfriend.bsky.social/@sisterlover.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
 318. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
 319. kitten666 (@kitten666.bsky.social), philophile (@philophile.bsky.social), kittnpaws (@kittnpaws.bsky.social), and Pencil (@pencil-by-pencil.bsky.social) follow open zoophiles.
-320. kore p (@slutwhorecore.bsky.social), CuteVulpixLover (@cutevulpixlover.bsky.social), and ZooFoxx (@zootube.bsky.social) are open zoophiles.
+320. CuteVulpixLover (@cutevulpixlover.bsky.social), and ZooFoxx (@zootube.bsky.social) are open zoophiles.
 321. Saturn (@dankpaw.bsky.social) is an open zoophile. She admitted to being a zoophile: (<https://archive.today/QdXVE>) and posted a zoophile flag: (<https://archive.today/bGEie>).
 322. Frankie (@fr4nkie.bsky.social) is an open zoophile: (<https://archive.today/HV21l>).
 323. max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
