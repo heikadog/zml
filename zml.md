@@ -383,7 +383,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 314. Lucky the Wolf (@luckytheluckless.bsky.social), DogRed (goldenred.bsky.social), Sub Woofer (@bigsubwoofer.bsky.social), and ponyfag (@ponyfag.bsky.social) are open zoophiles.
 315. Fumei (@choufumei.bsky.social) is a self-admitted open zoophile: (<https://archive.today/LRxDT>).
 316. Anti Wholesome Task Force (@anti-wholesome.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
-317. Manure Wake (@manurewake.bsky.social), alice (@sistergirlfriend.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
+317. Manure Wake (@manurewake.bsky.social), alice (@sistergirlfriend.bsky.social/@sisterlover.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
 318. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
 319. kitten666 (@kitten666.bsky.social), philophile (@philophile.bsky.social), kittnpaws (@kittnpaws.bsky.social), and Pencil (@pencil-by-pencil.bsky.social) follow open zoophiles.
 320. kore p (@slutwhorecore.bsky.social), CuteVulpixLover (@cutevulpixlover.bsky.social), and ZooFoxx (@zootube.bsky.social) are open zoophiles.
@@ -394,3 +394,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 325. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Moth (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), CoffeeDraggy (@coffeethedragon.bsky.social), poppy (@cutiepatotiebat.bsky.social), Kurtis (@kurtlolly.bsky.social), Jalozo (@jalozo.bsky.social), and lottie (@sloppypawjob.bsky.social) are open zoophiles.
 326. Damian (@ultrarq.bsky.social) supports zoophiles: (<https://archive.today/RObU1>).
 327. zekrom93 (@zekrom93.bsky.social) is an open zoophile: (<https://archive.today/ClXGp>).
+328. VVN (@mawjob.bsky.social), arceus93 (@arceus93.bsky.social), Cyno Cedar (@cynocedar.bsky.social), and BunnyBeeZooey (@bunnybeezooey.bsky.social) are open zoophiles.
