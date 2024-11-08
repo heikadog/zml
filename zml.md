@@ -383,7 +383,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 314. Lucky the Wolf (@luckytheluckless.bsky.social), DogRed (goldenred.bsky.social), Sub Woofer (@bigsubwoofer.bsky.social), and ponyfag (@ponyfag.bsky.social) are open zoophiles.
 315. Fumei (@choufumei.bsky.social) is a self-admitted open zoophile: (<https://archive.today/LRxDT>).
 316. Anti Wholesome Task Force (@anti-wholesome.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
-317. Manure Wake (@manurewake.bsky.social), alice (@sistergirlfriend.bsky.social/@sisterlover.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
+317. Manure Wake (@manurewake.bsky.social), alice (@sisterlover.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
 318. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
 319. kitten666 (@kitten666.bsky.social), philophile (@philophile.bsky.social), kittnpaws (@kittnpaws.bsky.social), and Pencil (@pencil-by-pencil.bsky.social) follow open zoophiles.
 320. CuteVulpixLover (@cutevulpixlover.bsky.social), and ZooFoxx (@zootube.bsky.social) are open zoophiles.
