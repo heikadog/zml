@@ -364,7 +364,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 295. Kurtis (@thekingsnanine.bsky.social) was outed as a zoophile, saying he has a "zoo fetish": (<https://archive.today/30hUC>) and later tried to excuse following an open zoophile: (<https://archive.today/HfoRk>)
 296. Tuka (@tanukinuts.bsky.social), echo (@fleetingecho.bsky.social), Wyatt Furry (@wyatt-furry.bsky.social), Einzel (@einzelganger7.bsky.social), and bel (@sc4izzp.bsky.social) are open zoophiles.
 297. Chopper (@reindeerphile.bsky.social), Phorcys (@phorcys-aurora.bsky.social), Úlfur / Digi (@wildwolfdog.bsky.social), Fee (@the-wild-fee.bsky.social), hakaishin0599 (@hakaishin0599.bsky.social), Zen (@zenzeegull.bsky.social), and Peachy (@creepypeachy.bsky.social) are open zoophiles.
-298. Ezra the Fox (@funfoxwhore.bsky.social), Caddy (@cadmasta.bsky.social), sofia (@sofia454a0.bsky.social), and byakkodemonio (@byakkodemonio.bsky.social) follow open zoophiles.
+298. Caddy (@cadmasta.bsky.social), sofia (@sofia454a0.bsky.social), and byakkodemonio (@byakkodemonio.bsky.social) follow open zoophiles.
 299. cookieott (@cookieott.bsky.social), coyoteboybark (@coyoteboybark.bsky.social), and Sykon (@nordicskunk.bsky.social) follow open zoophiles.
 300. WasHere098 (@washere098.bsky.social) is an open zoophile: (<https://archive.today/IjykK>).
 301. popcoals (@popcoals.bsky.social) is an open zoophile. They asked for a "zoophile hypnosis GIF," referring to people who are against zoophilia as "antis:" (<https://archive.today/mdEmm>)
@@ -399,3 +399,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 330. LazzyLazarus (@lazzylazarus.bsky.social) is an open zoophile: (<https://archive.today/Jfb92>).
 331. Flip (@notailfox.bsky.social), Senpai Cyn (@senpaicyn.bsky.social), Dog (@everyponie.bsky.social), and Pup Draven (@knottipup.bsky.social) are open zoophiles.
 332. Dark~Cyn~Doge (@decayingflora.bsky.social) and pwushycuckwy (@pwushycuckwy.bsky.social) follow open zoophiles.
+333. Rey/Kroobs/W0LFSIN (@reyw0lf.bsky.social) has gone on record to welcome zoophiles and pedophiles into their spaces: (<https://archive.today/QKRgj>).
+334. Paradox The Opossum (@stupidopossum.bsky.social), Ezra after Dark (@funfoxwhore.bsky.social), loki (@spoonfulofsuga.bsky.social), and Dog (@noteverypony.bsky.social) are open zoophiles.
