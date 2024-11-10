@@ -400,4 +400,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 331. Flip (@notailfox.bsky.social), Senpai Cyn (@senpaicyn.bsky.social), and Pup Draven (@knottipup.bsky.social) are open zoophiles.
 332. Dark~Cyn~Doge (@decayingflora.bsky.social), pwushycuckwy (@pwushycuckwy.bsky.social), and feralpornlove (@feralpornlove.bsky.social) follow open zoophiles.
 333. Rey/Kroobs/W0LFSIN (@reyw0lf.bsky.social) has gone on record to welcome zoophiles and pedophiles into their spaces: (<https://archive.today/QKRgj>).
-334. Paradox The Opossum (@stupidopossum.bsky.social), Ezra after Dark (@funfoxwhore.bsky.social), loki (@spoonfulofsuga.bsky.social), Dog (@noteverypony.bsky.social), and DirtyDog (@dirtydog183.bsky.social) are open zoophiles.
+334. Paradox The Opossum (@stupidopossum.bsky.social), Ezra after Dark (@funfoxwhore.bsky.social), loki (@spoonfulofsuga.bsky.social), Dog (@noteverypony.bsky.social), DirtyDog (@dirtydog183.bsky.social), and kristofer sataniko (@karuqow.bsky.social) are open zoophiles.
