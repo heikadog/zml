@@ -159,7 +159,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 93. Bear Huzk (@bearhuzk.bsky.social) is an open zoophile.
 94. Vitai Slade (@vitai.bsky.social) is a zoophile. Most of the evidence against him is in a publicly-accessible Telegram channel, showing he was active in zoophile group chats dating as far back as 2014: _[CW for mentions of animal sexual abuse and an uncensored screenshot of animal genitalia.]_ (<https://t.me/+zFN1GrZG85BiM2Mx>). He has been on record stating his wife is "a zoo," and said a picture of a dog's genitalia was "delicious." Along with screenshots of evidence and forwarded messages from Vitai, there are messages from bots in the channel that corroborate timestamps.
 95. Orange (@orangeat.bsky.social) is an open zoophile. He publicly advertises a zoophile-adjacent Mastodon instance in his bio "for the zooey friends," and has written for zooey.pub under this alias. In addition, he follows a lot of zoophiles under this alias.
-96. Subwoofer (@subwoofuhr.bsky.social), GayGrayCat (@gayyellowcat.bsky.social), c2ash_0v3rride (@phant0mphreak.bsky.social), and dirtydog183 (@dirtydog183.bsky.social) follow open zoophiles.
+96. Subwoofer (@subwoofuhr.bsky.social), GayGrayCat (@gayyellowcat.bsky.social), and c2ash_0v3rride (@phant0mphreak.bsky.social) follow open zoophiles.
 97. Kirill (@bluewolfi3.bsky.social) and Storm the Wolfy Zoo (@stormthewolfyzoo.bsky.social) are open zoophiles.
 98. Furry Raiders (@furryraiders.bsky.social) are an alt-right nazifur Telegram group. Its owner, Foxler (@starfoxacefox.furryraiders.org), described dogs as "sexual beings" in a forum reply: (<https://archive.today/1HTrL>), had an account on a now-defunct animal sexual abuse forum: (<https://archive.today/vnatQ>), and lists zoophilia as a "Fave" on his F-List: (<https://archive.today/g7GnY>).
 99. Zippy (@zippyzoop.bsky.social), zeta-love (@zeta-love.bsky.social) and catgirl (@somerandomcat.bsky.social) are all open zoophiles.
@@ -400,4 +400,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 331. Flip (@notailfox.bsky.social), Senpai Cyn (@senpaicyn.bsky.social), and Pup Draven (@knottipup.bsky.social) are open zoophiles.
 332. Dark~Cyn~Doge (@decayingflora.bsky.social) and pwushycuckwy (@pwushycuckwy.bsky.social) follow open zoophiles.
 333. Rey/Kroobs/W0LFSIN (@reyw0lf.bsky.social) has gone on record to welcome zoophiles and pedophiles into their spaces: (<https://archive.today/QKRgj>).
-334. Paradox The Opossum (@stupidopossum.bsky.social), Ezra after Dark (@funfoxwhore.bsky.social), loki (@spoonfulofsuga.bsky.social), and Dog (@noteverypony.bsky.social) are open zoophiles.
+334. Paradox The Opossum (@stupidopossum.bsky.social), Ezra after Dark (@funfoxwhore.bsky.social), loki (@spoonfulofsuga.bsky.social), Dog (@noteverypony.bsky.social), and DirtyDog (@dirtydog183.bsky.social) are open zoophiles.
