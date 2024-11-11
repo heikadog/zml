@@ -352,7 +352,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 283. ThatDustyDog (@tddog.bsky.social) is an open zoophile, but doesn't have the zeta in their Bluesky profile: (<https://archive.today/lSjsM>).
 284. Cheski (@chezetaki.bsky.social) is an open zoophile.
 285. Nezuko (@nxzukokamado.bsky.social) is an open zoophile: (<https://archive.today/QRH7s>)
-286. Tebya (@tebya.bsky.social), Le Guy (@zooeyzorro.bsky.social), and AnonymousDerg (@anonymousderg.bsky.social) are open zoophiles.
+286. Chompers (@theferretzeta.bsky.social), Le Guy (@zooeyzorro.bsky.social), and AnonymousDerg (@anonymousderg.bsky.social) are open zoophiles.
 287. Zetafloofz (@zetafloofz.bsky.social), zetacookies (@zetacookies.bsky.social) and mdouz (@mdouz.bsky.social) follow open zoophiles.
 288. palletzer (@palletzer.bsky.social), ZooKitty (@zookitty.bsky.social), Zetawolf (@zetapaw.bsky.social), thato (@thato12351151.bsky.social), and Jelix (@jelixcat.bsky.social) are open zoophiles.
 289. Zarky (@zarkyzeta.bsky.social) is an open zoophile. They referred to a meme claiming zoophiles and therians were the same thing as "one of our [memes]" in a conversation with zoophiles: (<https://archive.today/lPD8X>)
