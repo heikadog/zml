@@ -15,7 +15,7 @@ You can submit accounts to the list, request to be removed from the list, or sub
 
 To be added to the list, candidates should meet at least one or more of these criteria:
 
-1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the zeta symbol (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name.
+1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the Greek letter zeta (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name.
 2. Actively interacting with open zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large number of open zoophiles.
 3. Supporting or defending zoophiles or their associates, or creating spaces that welcome zoophiles.
 4. Being publicly identified as a zoophile by a reputable whistleblower, or being found participating in conversations which advocate for or admit to zoophilic acts.
@@ -249,7 +249,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 180. SexualizedPonies (@sexualizedpony.bsky.social), and phiner (@phiner.bsky.social) follow open zoophiles.
 181. ScarredLion (@scarredlion.bsky.social), joejoe (@joejoe4games.bsky.social), Kas (@boytiger.bsky.social), Pup Shadow (@woofpupshadowsf.bsky.social), and h1fur (@h1fur.bsky.social) follow open zoophiles.
 182. A Logical Thylacine (@logicthylacine.bsky.social) is an open zoophile. Even though the account is locked, their Twitter bio has a particular series of coded symbols that act as shorthand for their experiences with zoophilia, otherwise known as a "Zoo Code": (<https://archive.today/P1gjr>). _[It wasn't archived, but we should note the same code format was also on Thera's profile before it got suspended.]_ They also only follow open zoophiles.
-183. Cozmos Fox (@cozmosfox.bsky.social) and Queen Cozy Glow (@zooqueen.bsky.social) are open zoophiles.
+183. PumpyToy (@pumpytoy.bsky.social) and Queen Cozy Glow (@zooqueen.bsky.social) are open zoophiles.
 184. Edgyrat (@edgyrat.bsky.social), Fie (@wufiesluv.bsky.social), and BatSluTrue (@batsluslu.bsky.social) follow open zoophiles.
 185. The Trans Grinlin Queen (@nexiumnexus.bsky.social) is an open zoophile.
 186. beuterall (@beuterall.bsky.social) follows open zoophiles.
