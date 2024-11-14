@@ -401,5 +401,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 332. Kroobs/Rey/W0LFSIN (@kr00bs.bsky.social/@reyw0lf.bsky.social) has gone on record to say zoophiles and pedophiles "deserve community:" (<https://archive.today/QKRgj>).
 333. Paradox The Opossum (@stupidopossum.bsky.social), Ezra after Dark (@funfoxwhore.bsky.social), loki (@spoonfulofsuga.bsky.social), Dog (@noteverypony.bsky.social), DirtyDog (@dirtydog183.bsky.social), and kristofer sataniko (@karuqow.bsky.social) are open zoophiles.
 334. Alton (@altonfer.bsky.social), knottybitch (@knottybitch.bsky.social), Just a Zooey Deer (@somezoosexualdeer.bsky.social), Nyxthepuppygirl (@nyxthepuppygirl.bsky.social), Pupidae (@pupidae.bsky.social), and Zeki (@snzr.bsky.social) are open zoophiles.
-335. Zenna (@antiz0o.bsky.social), Zahovar (@justazoopuppy.bsky.social), ZNA (@zetanorthamerica.bsky.social), and Feral Fawner (@fawningoverferals.bsky.social) are open zoophiles.
-336. Shugunou (@shugunou.bsky.social/@shugunounsfw.bsky.social) follows open zoophiles.
+335. Shugunou (@shugunou.bsky.social/@shugunounsfw.bsky.social) follows open zoophiles.
+336. Zenna (@antiz0o.bsky.social), Zahovar (@justazoopuppy.bsky.social), ZNA (@zetanorthamerica.bsky.social), Feral Fawner (@fawningoverferals.bsky.social), KnottedBraix (@knottedbraixen.bsky.social), and Brian the folf (@brianfolf.bsky.social) are open zoophiles.
