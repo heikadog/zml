@@ -407,3 +407,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 338. kaatjafleas (@kaatjaxzx.bsky.social) is a "zoo ally:" (<https://archive.today/9bD4Z>).
 339. Tsuki (@princeoftheforest.bsky.social), felixx (@stonerpupp.bsky.social), Gyzmo (@gyzmozoo.bsky.social), and holymeowy (@holymeowy.bsky.social) are open zoophiles.
 340. insurgent (@insurgent.bsky.social), Knotty Melissa (@sissymelissatx.bsky.social), and oliolilover (@oliolilover.bsky.social) follow open zoophiles.
+341. Juno (@sparkleballs.bsky.social) made art of a dog with the Greek zeta symbol: (<https://archive.today/QPjiw>).
