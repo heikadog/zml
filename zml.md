@@ -405,6 +405,6 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 336. Zenna (@antiz0o.bsky.social), Zahovar (@justazoopuppy.bsky.social), ZNA (@zetanorthamerica.bsky.social), Feral Fawner (@fawningoverferals.bsky.social), KnottedBraix (@knottedbraixen.bsky.social), and Brian the folf (@brianfolf.bsky.social) are open zoophiles.
 337. Bäranarchie (@baeranarchie.bsky.social), honey (@lvrkingz.bsky.social), Newt (@comship.bsky.social), and Zooey Vulpix (@vye-z.bsky.social) are open zoophiles.
 338. kaatjafleas (@kaatjaxzx.bsky.social) is a "zoo ally:" (<https://archive.today/9bD4Z>).
-339. Tsuki (@princeoftheforest.bsky.social), felixx (@stonerpupp.bsky.social), Gyzmo (@gyzmozoo.bsky.social), and holymeowy (@holymeowy.bsky.social) are open zoophiles.
+339. Tsuki (@princeoftheforest.bsky.social), felixx (@stonerpupp.bsky.social), Gyzmo (@gyzmozoo.bsky.social), holymeowy (@holymeowy.bsky.social), and Jairo Lupus (@jairolupus.bsky.social) are open zoophiles.
 340. insurgent (@insurgent.bsky.social), Knotty Melissa (@sissymelissatx.bsky.social), and oliolilover (@oliolilover.bsky.social) follow open zoophiles.
-341. Juno (@sparkleballs.bsky.social) made art of a dog with the Greek zeta symbol: (<https://archive.today/QPjiw>).
+341. Juno (@sparkleballs.bsky.social) made art of a dog with the Greek zeta symbol and the zoophile colors, captioning it with the "zoopride" hashtag: (<https://archive.today/QPjiw>).
