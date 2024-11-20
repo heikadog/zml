@@ -343,7 +343,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 277. Shadow (@closingdistance.bsky.social) supports open zoophiles. In particular, they reposted a meme from a zoophile with the caption, "When all your friends have [the Greek zeta] in their username": (<https://archive.today/gXNl7>)
 278. Ōmori (@oumorigin.bsky.social) has asked multiple zoophiles to talk to them about zoophilia: (<https://archive.today/Ublol>). Additionally, they follow multiple zoophiles.
 279. 336.\_.Fang (@336fang.bsky.social) follows open zoophiles.
-280. Baphomet (@zooandme.bsky.social), Mavrick (@mavrickz.bsky.social), Zip (@furryzip.bsky.social), Randans (@randasss.bsky.social), mei (@d0llnni.bsky.social), Ma (@zooeyma.bsky.social), Res (@res-est-hic.bsky.social), Derp Doggo (@derpdoggo.bsky.social), zetayeenboi (@zetayeenboi.bsky.social), Just a doggo (@justadoggo.bsky.social), levit666 (@levit666.bsky.social), Red Breebah (@redbreebah.bsky.social), and draya (@wonhohot.bsky.social) are open zoophiles.
+280. Baphomet (@zoopride666.bsky.social), Mavrick (@mavrickz.bsky.social), Zip (@furryzip.bsky.social), Randans (@randasss.bsky.social), mei (@d0llnni.bsky.social), Ma (@zooeyma.bsky.social), Res (@res-est-hic.bsky.social), Derp Doggo (@derpdoggo.bsky.social), zetayeenboi (@zetayeenboi.bsky.social), Just a doggo (@justadoggo.bsky.social), levit666 (@levit666.bsky.social), Red Breebah (@redbreebah.bsky.social), and draya (@wonhohot.bsky.social) are open zoophiles.
 281. Golden Skye (@goldensky32.bsky.social), rul54 (@rul54.bsky.social), Lachina (@lachina.bsky.social), and Cane (@canepanal.bsky.social) follow several open zoophiles.
 282. ThatDustyDog (@tddog.bsky.social) is an open zoophile, but doesn't have the zeta in their Bluesky profile: (<https://archive.today/lSjsM>).
 283. Cheski (@chezetaki.bsky.social) is an open zoophile.
@@ -377,7 +377,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 311. cutiepiezoo (@cutiepiezoo.bsky.social) and Rutger (@willowshroom.bsky.social) follow open zoophiles.
 312. Lucky the Wolf (@luckytheluckless.bsky.social), DogRed (goldenred.bsky.social), Sub Woofer (@bigsubwoofer.bsky.social), and ponyfag (@ponyfag.bsky.social) are open zoophiles.
 313. Fumei (@choufumei.bsky.social) is a self-admitted open zoophile: (<https://archive.today/LRxDT>).
-314. Anti Wholesome Task Force (@anti-wholesome.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
+314. Anti Wholesome Task Force (@bi-aionic.bsky.social) has shown support for zoophiles: (<https://archive.today/bV4Ve>).
 315. Manure Wake (@manurewake.bsky.social), alice (@sisterlover.bsky.social/@pervygf.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
 316. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
 317. kitten666 (@kitten666.bsky.social), philophile (@philophile.bsky.social), kittnpaws (@kittnpaws.bsky.social), and Pencil (@pencil-by-pencil.bsky.social) follow open zoophiles.
