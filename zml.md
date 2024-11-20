@@ -386,7 +386,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 320. Frankie (@fr4nkie.bsky.social) is an open zoophile: (<https://archive.today/HV21l>).
 321. max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
 322. snuggy (@snuggyy.bsky.social) follows open zoophiles.
-323. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Ripley (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), CoffeeDraggy (@coffeethedragon.bsky.social), poppy (@cutiepatotiebat.bsky.social), Kurtis (@kurtlolly.bsky.social), Jalozo (@jalozo.bsky.social), and lottie (@sloppypawjob.bsky.social) are open zoophiles.
+323. Bruce (@eaglespirited.bsky.social), Ivory (@ivorymane.bsky.social), Trax (@zooeytrax.bsky.social), Ripley (@canidaeursidae.bsky.social), yetagainfox (@yetagainfox.bsky.social), poppy (@cutiepatotiebat.bsky.social), Kurtis (@kurtlolly.bsky.social), Jalozo (@jalozo.bsky.social), and lottie (@sloppypawjob.bsky.social) are open zoophiles.
 324. Damian (@ultrarq.bsky.social) supports zoophiles: (<https://archive.today/RObU1>)
 325. VVN (@mawjob.bsky.social), Cyno Cedar (@cynocedar.bsky.social), and BunnyBeeZooey (@bunnybeezooey.bsky.social) are open zoophiles.
 326. Monody (@rancore202.bsky.social) supports open zoophiles, notably including the Greek zeta dogwhistle for zoophiles in their bio as people who are "welcome".
