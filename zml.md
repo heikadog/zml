@@ -403,10 +403,13 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 337. kaatjafleas (@kaatjaxzx.bsky.social) is a "zoo ally:" (<https://archive.today/9bD4Z>).
 338. Tsuki (@princeoftheforest.bsky.social), felixx (@stonerpupp.bsky.social), and Gyzmo (@gyzmozoo.bsky.social) are open zoophiles.
 339. insurgent (@insurgent.bsky.social), Knotty Melissa (@sissymelissatx.bsky.social), and oliolilover (@oliolilover.bsky.social) follow open zoophiles.
-340. Juno (@sparkleballs.bsky.social) made art of a dog with the Greek zeta symbol and the zoophile colors, captioning it with the "zoopride" hashtag: (<https://archive.today/QPjiw>).
-341. holymeowy (@holymeowy.bsky.social), Jairo Lupus (@jairolupus.bsky.social), Sylvie (@delusions-of-four.bsky.social), Zam (@vpnx.bsky.social), pwushycuckwy (@pwushycuckwy.bsky.social), Calypso (@zooeycalypso.bsky.social), and Silver (@silverpup.bsky.social) are open zoophiles.
-342. mickey (@micksstick.bsky.social), kore (@koresbackbitches.bsky.social), zoolynn (@zoolynn.bsky.social), ZiePhi (@ziephi.bsky.social), Violet (nymph0mania.bsky.social), hentailia (@hentailia.bsky.social), and KG (@kedrickgale.bsky.social) are open zoophiles.
-343. Nuki Junior (@juniorheelercub.bsky.social), May (@imyouropheliac.bsky.social) follow open zoophiles.
-344. Madeline (@pupofsin.bsky.social) is an open zoophile: (<https://archive.today/GAs2I>).
-345. Muffin (@schmuffin47.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/qPtZV>).
-346. tastypaws (@tastypaws.bsky.social) is an open zoophile: (<https://archive.today/ju5rY>).
+340. holymeowy (@holymeowy.bsky.social), Jairo Lupus (@jairolupus.bsky.social), Sylvie (@delusions-of-four.bsky.social), Zam (@vpnx.bsky.social), pwushycuckwy (@pwushycuckwy.bsky.social), Calypso (@zooeycalypso.bsky.social), and Silver (@silverpup.bsky.social) are open zoophiles.
+341. mickey (@micksstick.bsky.social), kore (@koresbackbitches.bsky.social), zoolynn (@zoolynn.bsky.social), ZiePhi (@ziephi.bsky.social), Violet (nymph0mania.bsky.social), hentailia (@hentailia.bsky.social), and KG (@kedrickgale.bsky.social) are open zoophiles.
+342. Nuki Junior (@juniorheelercub.bsky.social), May (@imyouropheliac.bsky.social) follow open zoophiles.
+343. Madeline (@pupofsin.bsky.social) is an open zoophile: (<https://archive.today/GAs2I>).
+344. Muffin (@schmuffin47.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/qPtZV>).
+345. tastypaws (@tastypaws.bsky.social) is an open zoophile: (<https://archive.today/ju5rY>).
+346. Juno (@sparkleballs.bsky.social) is an open zoophile. They made art of a dog with the Greek zeta symbol and the zoophile colors, captioning it with the "zoopride" hashtag: (<https://archive.today/QPjiw>).
+347. kunzoo (@kunzoo.bsky.social), thezooeywolp (@thezooeywolp.bsky.social), Kira (@kirashideaway.bsky.social), Feral North (@feralnorth.bsky.social), and Zeal (@zealpup.bsky.social) are open zoophiles.
+348. papa bear (@fatherfucksbest.bsky.social), Golden (@goldenfox426.bsky.social), xetovo (@xetovo.bsky.social), and KnotABigCat (@knotabigcat.bsky.social) are open zoophiles.
+349. Loki Dreadwolf (@dreadwolfloki.bsky.social) is an open zoophile: (<https://archive.today/udo3x>).
