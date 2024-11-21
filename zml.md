@@ -411,5 +411,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 345. tastypaws (@tastypaws.bsky.social) is an open zoophile: (<https://archive.today/ju5rY>).
 346. Juno (@sparkleballs.bsky.social) is an open zoophile. They made art of a dog with the Greek zeta symbol and the zoophile colors, captioning it with the "zoopride" hashtag: (<https://archive.today/QPjiw>).
 347. kunzoo (@kunzoo.bsky.social), thezooeywolp (@thezooeywolp.bsky.social), Kira (@kirashideaway.bsky.social), Feral North (@feralnorth.bsky.social), and Zeal (@zealpup.bsky.social) are open zoophiles.
-348. papa bear (@fatherfucksbest.bsky.social), Golden (@goldenfox426.bsky.social), xetovo (@xetovo.bsky.social), and KnotABigCat (@knotabigcat.bsky.social) are open zoophiles.
+348. papa bear (@fatherfucksbest.bsky.social), Golden (@goldenfox426.bsky.social), xetovo (@xetovo.bsky.social), KnotABigCat (@knotabigcat.bsky.social), and Zenna (@zennaz.bsky.social) are open zoophiles.
 349. Loki Dreadwolf (@dreadwolfloki.bsky.social) is an open zoophile: (<https://archive.today/udo3x>).
