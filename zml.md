@@ -415,4 +415,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 349. Loki Dreadwolf (@dreadwolfloki.bsky.social) is an open zoophile: (<https://archive.today/udo3x>).
 350. Kazinari (@kazinarizoo.bsky.social) and GustyGardens (@gustygardensz.bsky.social) are open zoophiles.
 351. Newly diagnosed Zoophile (@myroadtorecovery.bsky.social) is an open zoophile. We wouldn't normally label someone who admits to managing their zoophilia, but we saw a concerning post of them admitting to finding sex with their dog "intimate:" (<https://archive.today/VDz4k>).
-352. Foxy (@foxy9846.bsky.social) and Totally innocent pokemon (@p-diddy-enjoyer.bsky.social) follow open zoophiles.
+352. Foxy (@foxy9846.bsky.social), Totally innocent pokemon (@p-diddy-enjoyer.bsky.social), themetaii (@themetaii.bsky.social), SecretHorsie (@secrethorsie.bsky.social), and Decency Matters (@intersectionaldem.bsky.social) follow open zoophiles.
