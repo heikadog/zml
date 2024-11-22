@@ -404,7 +404,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 338. Tsuki (@princeoftheforest.bsky.social), felixx (@stonerpupp.bsky.social), and Gyzmo (@gyzmozoo.bsky.social) are open zoophiles.
 339. insurgent (@insurgent.bsky.social), Knotty Melissa (@sissymelissatx.bsky.social), and oliolilover (@oliolilover.bsky.social) follow open zoophiles.
 340. holymeowy (@holymeowy.bsky.social), Jairo Lupus (@jairolupus.bsky.social), Sylvie (@delusions-of-four.bsky.social), Zam (@vpnx.bsky.social), pwushycuckwy (@pwushycuckwy.bsky.social), Calypso (@zooeycalypso.bsky.social), and Silver (@silverpup.bsky.social) are open zoophiles.
-341. mickey (@micksstick.bsky.social), kore (@koresbackbitches.bsky.social), zoolynn (@zoolynn.bsky.social), ZiePhi (@ziephi.bsky.social), Violet (nymph0mania.bsky.social), hentailia (@hentailia.bsky.social), and KG (@kedrickgale.bsky.social) are open zoophiles.
+341. mickey (@micksstick.bsky.social), kore (@nawgla.bsky.social), zoolynn (@zoolynn.bsky.social), ZiePhi (@ziephi.bsky.social), Violet (nymph0mania.bsky.social), hentailia (@hentailia.bsky.social), and KG (@kedrickgale.bsky.social) are open zoophiles.
 342. Nuki Junior (@juniorheelercub.bsky.social), May (@imyouropheliac.bsky.social) follow open zoophiles.
 343. Madeline (@pupofsin.bsky.social) is an open zoophile: (<https://archive.today/GAs2I>).
 344. Muffin (@schmuffin47.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/qPtZV>).
