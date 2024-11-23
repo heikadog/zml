@@ -408,4 +408,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 342. Newly diagnosed Zoophile (@myroadtorecovery.bsky.social) is an open zoophile. We wouldn't normally label someone who admits to managing their zoophilia, but we saw a concerning post of them admitting to finding sex with their dog "intimate:" (<https://archive.today/VDz4k>).
 343. Foxy (@foxy9846.bsky.social), Totally innocent pokemon (@p-diddy-enjoyer.bsky.social), themetaii (@themetaii.bsky.social), SecretHorsie (@secrethorsie.bsky.social), and Decency Matters (@intersectionaldem.bsky.social) follow open zoophiles.
 344. The "Kero the Wolf" (@kerothewolf.bsky.social) Bluesky account is a parody account, but we're still adding and labelling as a Zoophile Supporter, as there's no indication this account is a parody of any kind.
-345. Rory (@hornyidk.bsky.social) and Wyldstag (@wyldstag.bsky.social) are open zoophiles.
+345. Rory (@hornyidk.bsky.social), Wyldstag (@wyldstag.bsky.social), and Void (@voidthevoiddragon.bsky.social) are open zoophiles.
