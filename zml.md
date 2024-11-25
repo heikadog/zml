@@ -54,7 +54,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 8. A Knotty Raccoon Girl (@kraccgurl.bsky.social) is an open zoophile.
 9. Kaptain (@kaptain.dog) was found openly harboring zoophiles in a DM and called people holding zoophiles accountable "a witch hunt," in addition to interacting with Cenny's AD. (<https://archive.today/N7xYv>).
 10. Huskeee (@huskeee.bsky.social) and ZoobyDoobyDoo (@zoobydoobydoo.bsky.social) are both open zoophiles who requested to be listed: (1: <https://archive.today/SYyUF> / 2: <https://archive.today/wtdxo>).
-11. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyfp.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>)
+11. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyfp.bsky.social/@libertyobw.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>)
 12. Akito (@akito.zooand.me) hosts a zoophile podcast and is an open zoophile: (<https://archive.today/FFb0z>).
 13. ~~ZooFur Faction (@zoo.pics) posts explicit images of IRL animal genitalia.~~ We’ve gotten this account taken down. To anyone who reported them or shared a post calling for them to be reported, thank you! 🎉
 14. 007bistromath (@007bistromath.bsky.social), Vex (@koolkanine.zooand.me), The Dog Queen (@interestedknot.bsky.social), Ceres Fallen (@ceresfallen.bsky.social), Akkuriss (@akkuriss.bsky.social), and Brass Bulldog (@brass.zooand.me) are all open zoophiles.
@@ -409,3 +409,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 343. The "Kero the Wolf" (@kerothewolf.bsky.social) Bluesky account is a parody account, but we're still adding and labelling as a Zoophile Supporter, as there's no indication this account is a parody of any kind.
 344. Rory (@hornyidk.bsky.social), Wyldstag (@wyldstag.bsky.social), Void (@voidthevoiddragon.bsky.social), ImVeryFriendly (@zoorightsmvmnt.bsky.social), BunnieJ (@bunniej.bsky.social), Shelkdy (@sunsliced.bsky.social), smokindogdick (@smokindogdick.bsky.social), Gaban Lock (@gabanlock.bsky.social), and The Cute Plague Rat (@cuteplaguerat.bsky.social) are open zoophiles.
 345. Felynn Angel (@felynnangel.bsky.social) and Knottyluv (@chase01090.bsky.social) follow open zoophiles.
+346. Sissy Jamie (@jobama99.bsky.social) supports zoophiles, according to their bio which says they "support zoo girls" and "the LGBTZ community."
