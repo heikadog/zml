@@ -409,3 +409,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 343. Rory (@hornyidk.bsky.social), Wyldstag (@wyldstag.bsky.social), Void (@voidthevoiddragon.bsky.social), ImVeryFriendly (@zoorightsmvmnt.bsky.social), BunnieJ (@bunniej.bsky.social), Shelkdy (@sunsliced.bsky.social), smokindogdick (@smokindogdick.bsky.social), Gaban Lock (@gabanlock.bsky.social), and The Cute Plague Rat (@cuteplaguerat.bsky.social) are open zoophiles.
 344. Felynn Angel (@felynnangel.bsky.social) and Knottyluv (@chase01090.bsky.social) follow open zoophiles.
 345. Sissy Jamie (@jobama99.bsky.social) supports zoophiles, saying "support zoo girls" and "the LGBTZ community," according to their bio.
+346. Ghoul (@s1ghthound.bsky.social) and kinkygay68 (@kinkygay68.bsky.social) are open zoophiles.
