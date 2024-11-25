@@ -408,4 +408,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 342. The "Kero the Wolf" (@kerothewolf.bsky.social) Bluesky account is a parody account, but we're still adding and labelling as a Zoophile Supporter, as there's no indication this account is a parody of any kind.
 343. Rory (@hornyidk.bsky.social), Wyldstag (@wyldstag.bsky.social), Void (@voidthevoiddragon.bsky.social), ImVeryFriendly (@zoorightsmvmnt.bsky.social), BunnieJ (@bunniej.bsky.social), Shelkdy (@sunsliced.bsky.social), smokindogdick (@smokindogdick.bsky.social), Gaban Lock (@gabanlock.bsky.social), and The Cute Plague Rat (@cuteplaguerat.bsky.social) are open zoophiles.
 344. Felynn Angel (@felynnangel.bsky.social) and Knottyluv (@chase01090.bsky.social) follow open zoophiles.
-345. Sissy Jamie (@jobama99.bsky.social) supports zoophiles, according to their bio which says they "support zoo girls" and "the LGBTZ community."
+345. Sissy Jamie (@jobama99.bsky.social) supports zoophiles, saying "support zoo girls" and "the LGBTZ community," according to their bio.
