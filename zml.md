@@ -407,3 +407,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 341. Prof Lupus Sirius Lobato Fenrison (@lupussignatus.bsky.social) interacts with zoophiles, specifically interacting with a zoophile who posts animal genitalia: (<https://archive.today/E8ul8>).
 342. Zoo and Me (@zooand.me) is a zoophilic podcast.
 343. Vegas (@yagab0nd.bsky.social) and Sissy Tymber (@tstymber.bsky.social) are open zoophiles.
+344. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
