@@ -406,4 +406,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 340. Cowboi69 (@cwbi6.bsky.social) is an open zoophile. They referred to zoophiles as a "minority community:" (<https://archive.today/oOabA>), and was found posting on multiple zoophilic online forums under the same name, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret."
 341. Prof Lupus Sirius Lobato Fenrison (@lupussignatus.bsky.social) interacts with zoophiles, specifically interacting with a zoophile who posts animal genitalia: (<https://archive.today/E8ul8>).
 342. Zoo and Me (@zooand.me) is a zoophilic podcast.
-343. Vegas (@yagab0nd.bsky.social) is an open zoophile.
+343. Vegas (@yagab0nd.bsky.social) and Sissy Tymber (@tstymber.bsky.social) are open zoophiles.
