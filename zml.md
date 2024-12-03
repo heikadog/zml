@@ -408,4 +408,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 342. Zoo and Me (@zooand.me) is a zoophilic podcast.
 343. Vegas (@yagab0nd.bsky.social) and Sissy Tymber (@tstymber.bsky.social) are open zoophiles.
 344. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
-345. Kami (@kamithezoo.bsky.social), Kumori (@kumottatenki.bsky.social), Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social), Ri-Ri/Akechi/Den (@risley1circus.bsky.social), and Zooraus (@zooraus.bsky.social) are open zoophiles.
+345. Kami (@kamithezoo.bsky.social), Kumori (@kumottatenki.bsky.social), Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social), Ri-Ri/Akechi/Den (@risley1circus.bsky.social), Zooraus (@zooraus.bsky.social), and Pyre (@hestieon.bsky.social) are open zoophiles.
