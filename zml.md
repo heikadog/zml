@@ -409,3 +409,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 343. Vegas (@yagab0nd.bsky.social) and Sissy Tymber (@tstymber.bsky.social) are open zoophiles.
 344. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
 345. Kami (@kamithezoo.bsky.social), Kumori (@kumottatenki.bsky.social), Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social), Ri-Ri/Akechi/Den (@risley1circus.bsky.social), Zooraus (@zooraus.bsky.social), Pyre (@hestieon.bsky.social), Lash's Bashes (@lashsbashes.bsky.social), and talnsin (@talnsin.bsky.social) are open zoophiles.
+346. Fiber Dog Z (@fiberdogz.bsky.social), ren (@natsus4ki.bsky.social), and bi dmv guy (@dmvzooboy.bsky.social) are open zoophiles.
