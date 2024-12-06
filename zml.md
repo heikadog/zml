@@ -177,7 +177,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 111. Mating and Playing (@mating.bsky.social) interacts with zoophiles, and has made several statements in support of zoophilia, like supporting an "evolution of the zoo community," pushing the idea that an animal can consent to sex with humans: (<https://archive.today/AmhkZ>).
 112. Totally Not Zooey (@totallynotzooey.bsky.social), GlowyPaws (@glowypaws.bsky.social) are open zoophiles.
 113. bestiality (@bestiality.bsky.social) follows open zoophiles.
-114. Nieve Rosa (@robinna.bsky.social), ChastityBear (@chastitybear.bsky.social), mrdaddypossum (@mrdaddypossum.bsky.social), and Somr (@somersaet.bsky.social) follow open zoophiles.
+114. Nieve Rosa (@robinna.bsky.social), ChastityBear (@chastitybear.bsky.social), and Somr (@somersaet.bsky.social) follow open zoophiles.
 115. Fantescatom (@fantescatom.bsky.social) and Sophie (@olio.bsky.social) are open zoophiles.
 116. 6pm (@6pm.bsky.social) and flareup (@flareup.bsky.social) follow open zoophiles.
 117. P0rtalW0lf (@p0rtalw0lf.bsky.social), and Xelas_Shep (@xelasshep.bsky.social) are open zoophiles.
@@ -213,8 +213,8 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 147. Ryke (@ryke.bsky.social/@rykead.bsky.social) is an open zoophile, currently sporting the Greek zeta in their current Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>).
 148. Lykos (@knot-dog.bsky.social) is an open zoophile.
 149. Dark Violet (@darkviolet.bsky.social) has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
-150. heika.dogfucker (@heikadogfucker.bsky.social) is a gimmick account made with the intent to frame me as a zoophile using Thera's art. If you see this, go report it under "Misleading Account". Thanks.
-151. Rusty Shackleford (@wildbuck55.bsky.social), zakietheweirdo (@zakietheweirdo.bsky.social), and personmc (@personmc.bsky.social) follow open zoophiles.
+150. heika.dogfucker (@heikadogfucker.bsky.social) is a gimmick account made with the intent to frame heikadog as a zoophile using Thera's art.
+151. Rusty Shackleford (@wildbuck55.bsky.social) follows open zoophiles.
 152. RRyder420 (@rryder420.bsky.social) is an open zoophile: (<https://archive.today/cGWzI>).
 153. leptonfox (@leptonfox.bsky.social) and telain (@telain.bsky.social) follow open zoophiles.
 154. Ortotchi (@ortotchi675.bsky.social), DylantheZoo (@dythezoo.bsky.social), Revvy (@revvyboi.bsky.social), and Zpooky Zoo-pra (@toyotazoopra.bsky.social) are open zoophiles.
@@ -232,7 +232,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 166. nyko (@nykowo.bsky.social), Dogsoulmate (@dogsoulmate.bsky.social), Ember (@sanct.bsky.social), Summutt (@zoosonastralplanes.bsky.social), IcySnowBear (@icysnowmutt.bsky.social), and Lokii (@lokiigalm.bsky.social) are open zoophiles.
 167. Kate (@katebeta.bsky.social) follows open zoophiles.
 168. ZooeyRaven (@zoeeyraven.bsky.social), Oui (@zeamelia.bsky.social), Harley The Great (@harleythegreat.bsky.social), malice (@zooeyfreeform.bsky.social), Atlas (@atlasbubble.bsky.social), Novie dog (@stonedshibaa.bsky.social), Junior22 (@junior22.bsky.social), and Lovebug (@lovebugplayz.bsky.social) are open zoophiles.
-169. Fenrir (@femrir.bsky.social), duude (@duude.bsky.social), HarterWarter (@harterwarter.bsky.social), and Fitik (@fitik.me) follow open zoophiles.
+169. duude (@duude.bsky.social), HarterWarter (@harterwarter.bsky.social), and Fitik (@fitik.me) follow open zoophiles.
 170. Skydog (@skyk9.bsky.social) is an open zoophile.
 171. GetRaccd (@raccooneggs.bsky.social) follows open zoophiles.
 172. Ashe FoxD (@ashefoxd.bsky.social) is dating Thera, an open zoophile.
@@ -265,7 +265,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 199. Zackie (@zackieroo.bsky.social) follows open zoophiles.
 200. FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), Gatorkid666 (@rabidbee666.bsky.social), and Vandal (@stupidgirlthing.bsky.social) are open zoophiles.
 201. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), and Rosielynn (@rosielynn.bsky.social) are open zoophiles.
-202. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Nightyshy (@nightyshy.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
+202. Bonestone (@bonestone.bsky.social), Loopsss (@loopsss.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
 203. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 204. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia:" (<https://archive.today/aG9Tb>).
 205. Jamie Sharp (@jamiesharp.bsky.social/@yiffkitty.bsky.social ) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
@@ -311,7 +311,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 245. theefoxy (@theefoxy.bsky.social) and Felis (@moonfeline.bsky.social) follow open zoophiles.
 246. Tekfox (@tekfox.bsky.social) and Dire (@direprophecies.bsky.social) were accused of being zoophiles by multiple sources in Telegram messages to ConStaffWatch, pictured hanging out with Akari and several other zoophiles at a ski meet called Furry Ski Weekend: (<https://archive.today/kno0f>). The founders of the ski meet, Dire, Tekfox, and another fursuiter named Tuaolo, were friends with now-convicted zoosadist and pedophile Cupid the Deer, even after allegedly banning him from the meets when he got convicted: (<https://archive.today/2zn5Q>). Additionally, they've long been friends with Lycaon Victus, who has gone on record saying he's a zoophile: (<https://archive.today/0l7mq>) years after he was open about being a zoophile: (<https://archive.today/gSsgN> / <https://archive.today/UtPd3>).
 247. malcontentamute (@malcontentamute.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they say they're a zoophile on Twitter: (<https://archive.today/8mlPW>), and an open zoophile drew their profile picture.
-248. dahding (@dahding.bsky.social), Kin (@kinharddon.bsky.social), ferreacious (@ferreacious.bsky.social), feral enjoyer (@bogtog.bsky.social), amarok2728 (@venkman1975.bsky.social), Rorgo the Pig (@deburorgo.bsky.social), neddybottom (@neddybottom.bsky.social), gert1992 (@gert1992.bsky.social), daddy8 (@daddy8.bsky.social), Lewsey FF (@lewseyff.bsky.social), petrakok89 (@petrakok89.bsky.social), The Bad 1 (@thebad1.bsky.social), Decay (@decayingcorpse.bsky.social), and isail195 (@isail195.bsky.social) follow open zoophiles.
+248. dahding (@dahding.bsky.social), Kin (@kinharddon.bsky.social), ferreacious (@ferreacious.bsky.social), feral enjoyer (@bogtog.bsky.social), amarok2728 (@venkman1975.bsky.social), Rorgo the Pig (@deburorgo.bsky.social), neddybottom (@neddybottom.bsky.social), daddy8 (@daddy8.bsky.social), Lewsey FF (@lewseyff.bsky.social), petrakok89 (@petrakok89.bsky.social), The Bad 1 (@thebad1.bsky.social), Decay (@decayingcorpse.bsky.social), and isail195 (@isail195.bsky.social) follow open zoophiles.
 249. BeePZ (@beepz.bsky.social), Valor (@valorfur.bsky.social), and Eternal (@eternal-bones.bsky.social) are open zoophiles.
 250. Slightly Furry (@slightlyfurry.bsky.social) was named by ConStaffWatch as willingly associating with zoophiles like K0mpy and Ari: (<https://archive.today/wVfSb>). K0mpy, an owner of the bar Slightly Furry owns, admitted to liking animal sexual abuse media: (<https://archive.today/YiBdW>), made porn with Cenny: (<https://archive.today/J40Z1>), and is married to Ari, who has a zoophile pride sticker on his phone: (<https://archive.today/Z1jLG>).
 251. zooblow (@zooblow.bsky.social), yugaslath (@yugaslath.bsky.social), and Malus (@malus.zone) follow open zoophiles.
@@ -322,7 +322,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 256. Logan (@ashesoflogan.bsky.social) and Malique (@malique88.bsky.social) are open zoophiles.
 257. Valais/Fwucky (@valais.bsky.social/@fwucky.art/@baaboyz.bsky.social) is an open zoophile, according to a Fediverse instance: (<https://archive.today/uB2EG>). He posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
 258. Emberlynns (@emberlynns.bsky.social), Aurorus (@zoofoxpunched.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), ManuMare (@manumare.bsky.social), Rinko (@rinko-horsey.bsky.social), and Ravel (@noxxthesuccubus.bsky.social) are open zoophiles.
-259. Windswept Canopies (@windsweptcanopies.bsky.social), draconicnmamateur (@draconicmamateur.bsky.social), Crimson (@sweet-crimson.bsky.social), christinoaugusto (@christinoaugusto.bsky.social), and Gylan (@gylan.bsky.social) follow open zoophiles.
+259. Windswept Canopies (@windsweptcanopies.bsky.social), draconicnmamateur (@draconicmamateur.bsky.social), christinoaugusto (@christinoaugusto.bsky.social), and Gylan (@gylan.bsky.social) follow open zoophiles.
 260. Pferdefreund (@pferd.bsky.social), SomeoneOwO (@meowser1.bsky.social), Loba Vermelha (@goennering.bsky.social), Kitsune (@kitsune27.bsky.social), Olive (@fantasyturigirl.bsky.social), Carodenius (@carodenius.bsky.social), Taco (@1-taco-1.bsky.social), lucas (@changooneer.bsky.social), and AeroDaWolf (@chonchob.bsky.social) are open zoophiles.
 261. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://archive.today/ZeSEl>).
 262. AnnieGal (@anniegalla.bsky.social/@anniegaiia.bsky.social) and milkbone (@milkbone.bsky.social) follow open zoophiles.
@@ -378,7 +378,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 312. meow boy (@meowkid.bsky.social) follows open zoophiles.
 313. LazzyLazarus (@lazzylazarus.bsky.social) is an open zoophile: (<https://archive.today/Jfb92>).
 314. Flip (@notailfox.bsky.social), Senpai Cyn (@senpaicyn.bsky.social), and Pup Draven (@knottipup.bsky.social) are open zoophiles.
-315. Dark~Cyn~Doge (@decayingflora.bsky.social), and feralpornlove (@feralpornlove.bsky.social) follow open zoophiles.
+315. feralpornlove (@feralpornlove.bsky.social) follows open zoophiles.
 316. Kroobs/Rey/W0LFSIN (@kr00bs.bsky.social/@reyw0lf.bsky.social/@w0lfsin.bsky.social) has gone on record to say zoophiles and pedophiles "deserve community:" (<https://archive.today/QKRgj>).
 317. Paradox The Opossum (@stupidopossum.bsky.social), loki (@spoonfulofsuga.bsky.social), Dog (@noteverypony.bsky.social), DirtyDog (@dirtydog183.bsky.social), and kristofer sataniko (@karuqow.bsky.social) are open zoophiles.
 318. Alton (@altonfer.bsky.social), knottybitch (@knottybitch.bsky.social), Just a Zooey Deer (@somezoosexualdeer.bsky.social), Nyxthepuppygirl (@nyxthepuppygirl.bsky.social), Pupidae (@pupidae.bsky.social), and Zeki (@snzr.bsky.social) are open zoophiles.
