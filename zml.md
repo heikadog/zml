@@ -33,7 +33,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 ## Evidence
 
 > [!CAUTION]
-> Some of these links include censored, but still explicit animal sexual abuse media—proceed with caution.
+> Some of these links include censored, but still explicit animal sexual abuse media or animal genitalia—proceed with caution.
 
 1. (There were other furries in this thread, but I'll only be focusing on the people on the mute list with Bluesky accounts. Assume fully censored or blacked-out screenshots in the thread to be explicit animal sexual abuse media; these are not blank tweets.)
 
@@ -408,3 +408,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 342. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
 343. Kumori (@kumottatenki.bsky.social), Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social), Ri-Ri/Akechi/Den (@risley1circus.bsky.social), Zooraus (@zooraus.bsky.social), Pyre (@hestieon.bsky.social), Lash's Bashes (@lashsbashes.bsky.social), and talnsin (@talnsin.bsky.social) are open zoophiles.
 344. Fiber Dog Z (@fiberdogz.bsky.social), ren (@natsus4ki.bsky.social), bi dmv guy (@dmvzooboy.bsky.social), and Dogs (@zoobottom.bsky.social) are open zoophiles.
+345. HornyDragon (@hornydragonperv.bsky.social) supports zoophiles. They replied to an open zoophile saying "if your friend comes out to you as a zoophile, you have a moral obligation to support them and their love" with "I agree:" (<https://archive.today/1ph4K>).
+346. Dansburst Studios (@dansman1729.bsky.social) made a YouTube video defending zoophilia: (<https://archive.today/Vhtet>).
