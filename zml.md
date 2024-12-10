@@ -410,4 +410,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 344. Fiber Dog Z (@fiberdogz.bsky.social), ren (@natsus4ki.bsky.social), bi dmv guy (@dmvzooboy.bsky.social), and Dogs (@zoobottom.bsky.social) are open zoophiles.
 345. HornyDragon (@hornydragonperv.bsky.social) supports zoophiles. They replied to an open zoophile saying "if your friend comes out to you as a zoophile, you have a moral obligation to support them and their love" with "I agree:" (<https://archive.today/1ph4K>).
 346. Dansburst Studios (@dansman1729.bsky.social) made a YouTube video defending zoophilia: (<https://archive.today/Vhtet>).
-347. Luís Alcántara (@darkguyyy.bsky.social) is an open zoophile. He has a known zoophile flag in his header.
+347. Luís Alcántara (@darkguyyy.bsky.social) is an open zoophile. He has a known zoophile flag in his header, and lists "k9" as an interest.
