@@ -410,5 +410,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 344. HornyDragon (@hornydragonperv.bsky.social) supports zoophiles. They replied to an open zoophile saying "if your friend comes out to you as a zoophile, you have a moral obligation to support them and their love" with "I agree:" (<https://archive.today/1ph4K>).
 345. Dansburst Studios (@dansman1729.bsky.social) made a YouTube video defending zoophilia: (<https://archive.today/Vhtet>).
 346. Luís Alcántara (@darkguyyy.bsky.social) is an open zoophile. He has a known zoophile flag in his header, and lists "k9" as an interest.
-347. wolfgang (@tailholeluvr.bsky.social), browserreal (@browserreal.bsky.social), The Freak (@tearsoftar.bsky.social), and dogl0v3rboi (@dogl0v3rboi.bsky.social) are open zoophiles.
+347. wolfgang (@tailholeluvr.bsky.social), browserreal (@browserreal.bsky.social), The Freak (@tearsoftar.bsky.social), dogl0v3rboi (@dogl0v3rboi.bsky.social), and CrouchingCC (@crouchingcc.bsky.social) are open zoophiles.
 348. PupKnoti (@pupknoti.bsky.social) follows open zoophiles.
