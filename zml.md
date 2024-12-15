@@ -411,4 +411,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 345. Luís Alcántara (@darkguyyy.bsky.social) is an open zoophile. He has a known zoophile flag in his header, and lists "k9" as an interest.
 346. wolfgang (@tailholeluvr.bsky.social), browserreal (@browserreal.bsky.social), The Freak (@tearsoftar.bsky.social), dogl0v3rboi (@dogl0v3rboi.bsky.social), and CrouchingCC (@crouchingcc.bsky.social) are open zoophiles.
 347. PupKnoti (@pupknoti.bsky.social) follows open zoophiles.
-348. HornyDragon (@hornydragonperv.bsky.social) and brightburn117 (@brightburn117.bsky.social) are open zoophiles: (<https://archive.today/j4ICZ>)
+348. HornyDragon (@hornydragonperv.bsky.social) and brightburn117 (@brightburn117.bsky.social) are open zoophiles: (<https://archive.today/j4ICZ>).
+349. Beamy (@yungbeam.bsky.social) is an open zoophile.
