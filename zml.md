@@ -382,7 +382,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 316. Shugunou (@shugunou.bsky.social/@shugunounsfw.bsky.social) follows open zoophiles.
 317. Zenna (@antiz0o.bsky.social), Zahovar (@justazoopuppy.bsky.social), ZNA (@zetanorthamerica.bsky.social), Feral Fawner (@fawningoverferals.bsky.social), KnottedBraix (@knottedbraixen.bsky.social), and Brian the folf (@brianfolf.bsky.social) are open zoophiles.
 318. Bäranarchie (@baeranarchie.bsky.social), honey (@lvrkingz.bsky.social), Newt (@comship.bsky.social), and Zooey Vulpix (@vye-z.bsky.social) are open zoophiles.
-319. Tsuki (@princeoftheforest.bsky.social), felixx (@stonerpupp.bsky.social), and Gyzmo (@gyzmozoo.bsky.social) are open zoophiles.
+319. felixx (@stonerpupp.bsky.social) and Gyzmo (@gyzmozoo.bsky.social) are open zoophiles.
 320. insurgent (@insurgent.bsky.social), Knotty Melissa (@sissymelissatx.bsky.social), and oliolilover (@oliolilover.bsky.social) follow open zoophiles.
 321. holymeowy (@holymeowy.bsky.social), Jairo Lupus (@jairolupus.bsky.social), Sylvie (@delusions-of-four.bsky.social), Zam (@vpnx.bsky.social), Calypso (@zooeycalypso.bsky.social), and Silver (@silverpup.bsky.social) are open zoophiles.
 322. mickey (@micksstick.bsky.social), kore (@nawgla.bsky.social), zoolynn (@zoolynn.bsky.social), ZiePhi (@ziephi.bsky.social), Violet (nymph0mania.bsky.social), hentailia (@hentailia.bsky.social), and KG (@kedrickgale.bsky.social) are open zoophiles.
