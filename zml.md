@@ -412,4 +412,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 346. wolfgang (@tailholeluvr.bsky.social), browserreal (@browserreal.bsky.social), The Freak (@tearsoftar.bsky.social), dogl0v3rboi (@dogl0v3rboi.bsky.social), and CrouchingCC (@crouchingcc.bsky.social) are open zoophiles.
 347. PupKnoti (@pupknoti.bsky.social) follows open zoophiles.
 348. HornyDragon (@hornydragonperv.bsky.social) and brightburn117 (@brightburn117.bsky.social) are open zoophiles: (<https://archive.today/j4ICZ>).
-349. Beamy (@yungbeam.bsky.social) and throwawaybcnotsafe (@throwawaybcnotsafe.bsky.social) are open zoophiles.
+349. Beamy (@yungbeam.bsky.social), throwawaybcnotsafe (@throwawaybcnotsafe.bsky.social), and Donku (@phantomwolfy.bsky.social) are open zoophiles.
