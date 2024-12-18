@@ -414,3 +414,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 348. HornyDragon (@hornydragonperv.bsky.social) and brightburn117 (@brightburn117.bsky.social) are open zoophiles: (<https://archive.today/j4ICZ>).
 349. Beamy (@yungbeam.bsky.social), throwawaybcnotsafe (@throwawaybcnotsafe.bsky.social), Donku (@phantomwolfy.bsky.social), Grulfie (@grulfie.bsky.social), lexiretriever (@lexiretriever.bsky.social), and zoosky (@zoosky.bsky.social) are open zoophiles.
 350. Flare (@flare-dragon.bsky.social), divinedogteeth (@divinedogteeth.bsky.social), and Thixledown (@thixledown.bsky.social) follow open zoophiles.
+351. Kenny (@ineedhelp131.bsky.social) is "questioning their zooness," according to their bio, but openly interacts with zoophiles. Due to this and the fact that they have the zoophile flag colors in their bio, we've decided to label them as an open zoophile.
