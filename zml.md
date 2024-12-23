@@ -363,7 +363,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 297. Manure Wake (@manurewake.bsky.social), alice (@pervertedsister.bsky.social), dsilvaj42 (@dsilvaj42.bsky.social), May the Tigress (@maytigress.zooey.cat), and Edgecrystal (@edgecrystal.bsky.social) are open zoophiles.
 298. Medical Malpractice (@portaltoclarity.bsky.social) supports zoophiles: (<https://archive.today/KbPQb>).
 299. kitten666 (@kitten666.bsky.social), kittnpaws (@kittnpaws.bsky.social), and Pencil (@pencil-by-pencil.bsky.social) follow open zoophiles.
-300. CuteVulpixLover (@cutevulpixlover2.bsky.social), and ZooFoxx (@zootube.bsky.social/@rydzoo.bsky.social) are open zoophiles.
+300. ZooFoxx (@zootube.bsky.social/@rydzoo.bsky.social) is an open zoophile.
 301. Saturn (@dankpaw.bsky.social) is an open zoophile. She admitted to being a zoophile: (<https://archive.today/QdXVE>) and posted a zoophile flag: (<https://archive.today/bGEie>).
 302. Frankie (@fr4nkie.bsky.social) is an open zoophile: (<https://archive.today/HV21l>).
 303. max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
@@ -415,5 +415,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 349. Beamy (@yungbeam.bsky.social), throwawaybcnotsafe (@throwawaybcnotsafe.bsky.social), Donku (@phantomwolfy.bsky.social), Grulfie (@grulfie.bsky.social), lexiretriever (@lexiretriever.bsky.social), and zoosky (@zoosky.bsky.social) are open zoophiles.
 350. Flare (@flare-dragon.bsky.social), divinedogteeth (@divinedogteeth.bsky.social), Thixledown (@thixledown.bsky.social), Zekiel (@kezeli.bsky.social), and StonerHog (@stonerhog.bsky.social) follow open zoophiles.
 351. Kenny (@ineedhelp131.bsky.social) is "questioning their zooness," according to their bio, but openly interacts with zoophiles. Due to this and the fact that they have the zoophile flag colors in their bio, we've decided to label them as an open zoophile.
-352. Aki (@degenperv.bsky.social), pollywolly (@pollywolly.bsky.social), Lynx (@zoopsies.bsky.social), Pup Storm (@pupstormz.bsky.social), Maxxy (@opossophile.bsky.social), and kyboy34 (@kyboy34.bsky.social) are open zoophiles.
+352. Aki (@degenperv.bsky.social), pollywolly (@pollywolly.bsky.social), Lynx (@zoopsies.bsky.social), Pup Storm (@pupstormz.bsky.social), Maxxy (@opossophile.bsky.social), kyboy34 (@kyboy34.bsky.social), CuteVulpixLover (@cutevulpixlover3.bsky.social), incubus (@incubitwit.bsky.social), and Croc (@croqodile.bsky.social) are open zoophiles.
 353. titaniumgiest (@titaniumgiest.bsky.social) is an open zoophile. They replied to an open zoophile, Soren, about being in "the zoo community:" (<https://archive.today/aV5nU>).
