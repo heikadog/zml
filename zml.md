@@ -234,7 +234,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 168. Skydog (@skyk9.bsky.social) is an open zoophile.
 169. GetRaccd (@raccooneggs.bsky.social) follows open zoophiles.
 170. Ashe FoxD (@ashefoxd.bsky.social) is dating Thera, an open zoophile.
-171. dogoflife (@dogoflife.bsky.social), k969 (@k969.bsky.social), Zoomy Cat (@zoomycat.bsky.social), high4lifedude (@high4lifedude.bsky.social), Degen (@iamadegen.bsky.social), howler (@howlerzeta.bsky.social), and 0ffbrand (@0ffbrand.bsky.social) are open zoophiles.
+171. dogoflife (@dogoflife.bsky.social), k969 (@k969.bsky.social), Zoomy Cat (@zoomycat.bsky.social), high4lifedude (@high4lifedude.bsky.social), howler (@howlerzeta.bsky.social), and 0ffbrand (@0ffbrand.bsky.social) are open zoophiles.
 172. SexualizedPonies (@sexualizedpony.bsky.social), and phiner (@phiner.bsky.social) follow open zoophiles.
 173. ScarredLion (@scarredlion.bsky.social), joejoe (@joejoe4games.bsky.social), Kas (@boytiger.bsky.social), and h1fur (@h1fur.bsky.social) follow open zoophiles.
 174. A Logical Thylacine (@logicthylacine.bsky.social) is an open zoophile. Even though the account is locked, their Twitter bio has a particular series of coded symbols that act as shorthand for their experiences with zoophilia, otherwise known as a "Zoo Code": (<https://archive.today/P1gjr>). _[It wasn't archived, but we should note the same code format was also on Thera's profile before it got suspended.]_ They also only follow open zoophiles.
@@ -417,4 +417,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 351. Kenny (@ineedhelp131.bsky.social) is "questioning their zooness," according to their bio, but openly interacts with zoophiles. Due to this and the fact that they have the zoophile flag colors in their bio, we've decided to label them as an open zoophile.
 352. Aki (@degenperv.bsky.social), pollywolly (@pollywolly.bsky.social), and Lynx (@zoopsies.bsky.social) are open zoophiles.
 353. titaniumgiest (@titaniumgiest.bsky.social) is an open zoophile. They replied to an open zoophile, Soren, about being in "the zoo community:" (<https://archive.today/aV5nU>).
-354. Pup Storm (@pupstormz.bsky.social), Maxxy (@opossophile.bsky.social), kyboy34 (@kyboy34.bsky.social), CuteVulpixLover (@cutevulpixlover3.bsky.social), incubus (@incubitwit.bsky.social), Croc (@croqodile.bsky.social), and Blue Feral Wolf (@blueferalwolf.bsky.social) are open zoophiles.
+354. Pup Storm (@pupstormz.bsky.social), Maxxy (@opossophile.bsky.social), kyboy34 (@kyboy34.bsky.social), CuteVulpixLover (@cutevulpixlover3.bsky.social), incubus (@incubitwit.bsky.social), Croc (@croqodile.bsky.social), Blue Feral Wolf (@blueferalwolf.bsky.social), and Degen v2 (@degenfurry.bsky.social) are open zoophiles.
