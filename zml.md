@@ -418,3 +418,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 352. Aki (@degenperv.bsky.social), pollywolly (@pollywolly.bsky.social), and Lynx (@zoopsies.bsky.social) are open zoophiles.
 353. titaniumgiest (@titaniumgiest.bsky.social) is an open zoophile. They replied to an open zoophile, Soren, about being in "the zoo community:" (<https://archive.today/aV5nU>).
 354. Pup Storm (@pupstormz.bsky.social), Maxxy (@opossophile.bsky.social), kyboy34 (@kyboy34.bsky.social), CuteVulpixLover (@cutevulpixlover3.bsky.social), incubus (@incubitwit.bsky.social), Croc (@croqodile.bsky.social), Blue Feral Wolf (@blueferalwolf.bsky.social), Degen v2 (@degenfurry.bsky.social), Anya (@anyakitty.bsky.social), and Husky Kisses (@huskykisses.bsky.social) are open zoophiles.
+355. FoxVomitArts (@foxvomit.bsky.social) interacts with zoophiles. It made art with an open zoophile, Soren, (<https://archive.today/j2JIT>) and follows several open zoophiles.
