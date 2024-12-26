@@ -406,7 +406,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 340. Vegas (@yagab0nd.bsky.social) and Sissy Tymber (@tstymber.bsky.social) are open zoophiles.
 341. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
 342. Kumori (@kumottatenki.bsky.social), Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social), Ri-Ri/Akechi/Den (@risley1circus.bsky.social), Zooraus (@zooraus.bsky.social), Pyre (@hestieon.bsky.social), Lash's Bashes (@lashsbashes.bsky.social), and talnsin (@talnsin.bsky.social) are open zoophiles.
-343. Fiber Dog Z (@fiberdogz.bsky.social), ren (@natsus4ki.bsky.social), bi dmv guy (@dmvzooboy.bsky.social), and Dogs (@zoobottom.bsky.social) are open zoophiles.
+343. Fiber Dog Z (@fiberdogz.bsky.social), ren (@natsus4ki.bsky.social), and Dogs (@zoobottom.bsky.social) are open zoophiles.
 344. Dansburst Studios (@dansman1729.bsky.social) made a YouTube video defending zoophilia: (<https://archive.today/Vhtet>).
 345. Luís Alcántara (@darkguyyy.bsky.social) is an open zoophile. He has a known zoophile flag in his header, and lists "k9" as an interest.
 346. wolfgang (@tailholeluvr.bsky.social), browserreal (@browserreal.bsky.social), The Freak (@tearsoftar.bsky.social), dogl0v3rboi (@dogl0v3rboi.bsky.social), and CrouchingCC (@crouchingcc.bsky.social) are open zoophiles.
