@@ -350,7 +350,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 284. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
 285. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
 286. ukdem (@ukdem.bsky.social), sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), DOGBOY (@shinyespeon.bsky.social), and sillylittlegoober (@sillylittlegoober.bsky.social) follow open zoophiles.
-287. seba (@cetophilia.bsky.social), dawgdaddy (@dawgdaddy.bsky.social), John Lemon/Klaus (@doublefantasyqueer.bsky.social), Mutt_c4kes (@spr1nklemutt.bsky.social), Deer (Corpse) (@deercorpse.bsky.social), Clover (@cloverblower.bsky.social), and dog kisser (@arfowo.bsky.social) are open zoophiles.
+287. Sebastian (@pua.bsky.social), dawgdaddy (@dawgdaddy.bsky.social), John Lemon/Klaus (@doublefantasyqueer.bsky.social), Mutt_c4kes (@spr1nklemutt.bsky.social), Deer (Corpse) (@deercorpse.bsky.social), Clover (@cloverblower.bsky.social), and dog kisser (@arfowo.bsky.social) are open zoophiles.
 288. Luna (@zetaluna.bsky.social), Yage (@yage11.bsky.social), fern (@lakeofsins.bsky.social), Dumb Dog (@dum-d0g.bsky.social), Ruin Seeker (@errisessel.bsky.social), ZuuBoy2k (@zuuboy2k.bsky.social), Lykon (@lykon.bsky.social), and Shiv (@shiv950.bsky.social) are open zoophiles.
 289. RachelTheFictionkin (@rachelgardner.bsky.social) is a zoophile, according to her own admission: (<https://archive.today/d3xZw>).
 290. Exotic Erotics (@exotic-erotics.bsky.social) is a manufacturer of sex toys. It uses lifecasting to manufacture its toys, which involves directly modeling the toys after an a real animal's genitals by stimulating and 3D scanning the animal's genitals. This is unethical.
@@ -421,3 +421,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 355. FoxVomitArts (@foxvomit.bsky.social) interacts with zoophiles. It made art with an open zoophile, Soren, (<https://archive.today/j2JIT>) and follows several open zoophiles.
 356. Luci (@honorpawz.bsky.social), Alter (@alterstripes.bsky.social), Knottyjena (@jenahaze.bsky.social), and Rut in Mutt Butt (@muttrutt.bsky.social) are open zoophiles.
 357. SpotzDottz (@spotzdottz.bsky.social), Zemen (@z-men.bsky.social), Fenrir (@femrir.bsky.social), and the-ghost-fucker (@the-ghost-fucker.bsky.social) follow open zoophiles.
+358. juan-doe-drei (@juan-doe-drei.bsky.social) is an open zoophile: (<https://archive.today/CzZdH>).
