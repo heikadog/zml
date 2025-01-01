@@ -419,4 +419,5 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 353. Couger.silverpaws (@couger.bsky.social) follows open zoophiles. Additionally, their bio says they're "LGBTQZ friendly," where the Z is implied to stand for "zoophiles."
 354. Oli (@oliiscool78.bsky.social) is an open zoophile. The background of their profile picture has the zoophile flag.
 355. Bi Hedonist (@bapaucient.bsky.social), 26golivee (@26golivee.bsky.social), murowolf (@murowolf.bsky.social), and Kat (@felinethingy.bsky.social) follow open zoophiles.
-356. Sean (@cyberkat16.bsky.social), Cookie Cat (@coookiecat.bsky.social), knottedbitch (@knottedbitch.bsky.social), gross mutt (@gross-mutt.bsky.social), Seith Kandja (@dogcookielover.bsky.social), and evyn (@pikababy666.bsky.social) are open zoophiles.
+356. Sean (@cyberkat16.bsky.social), Cookie Cat (@coookiecat.bsky.social), knottedbitch (@knottedbitch.bsky.social), gross mutt (@gross-mutt.bsky.social), Seith Kandja (@dogcookielover.bsky.social), evyn (@pikababy666.bsky.social), and Foxxxie (@foxxxie.bsky.social) are open zoophiles.
+357. furryctr36 (@furryctr36.bsky.social) is an open zoophile: (<https://archive.today/u5BO8>).
