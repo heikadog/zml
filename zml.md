@@ -404,7 +404,7 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 338. wolfgang (@tailholeluvr.bsky.social), browserreal (@browserreal.bsky.social), The Freak (@tearsoftar.bsky.social), dogl0v3rboi (@dogl0v3rboi.bsky.social), and CrouchingCC (@crouchingcc.bsky.social) are open zoophiles.
 339. PupKnoti (@pupknoti.bsky.social) follows open zoophiles.
 340. HornyDragon (@hornydragonperv.bsky.social) and brightburn117 (@brightburn117.bsky.social) are open zoophiles: (<https://archive.today/j4ICZ>).
-341. Beamy (@yungbeam.bsky.social), throwawaybcnotsafe (@throwawaybcnotsafe.bsky.social), Donku (@phantomwolfy.bsky.social), Grulfie (@grulfie.bsky.social), lexiretriever (@lexiretriever.bsky.social), and zoosky (@zoosky.bsky.social) are open zoophiles.
+341. throwawaybcnotsafe (@throwawaybcnotsafe.bsky.social), Donku (@phantomwolfy.bsky.social), Grulfie (@grulfie.bsky.social), lexiretriever (@lexiretriever.bsky.social), and zoosky (@zoosky.bsky.social) are open zoophiles.
 342. Flare (@flare-dragon.bsky.social), divinedogteeth (@divinedogteeth.bsky.social), Thixledown (@thixledown.bsky.social), Zekiel (@kezeli.bsky.social), and StonerHog (@stonerhog.bsky.social) follow open zoophiles.
 343. Kenny (@ineedhelp131.bsky.social) is "questioning their zooness," according to their bio, but openly interacts with zoophiles. Due to this and the fact that they have the zoophile flag in their bio, we've decided to label them as an open zoophile.
 344. Aki (@degenperv.bsky.social), pollywolly (@pollywolly.bsky.social), and Lynx (@zoopsies.bsky.social) are open zoophiles.
