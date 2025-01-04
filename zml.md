@@ -420,5 +420,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 354. Oli (@oliiscool78.bsky.social) is an open zoophile. The background of their profile picture has the zoophile flag.
 355. Bi Hedonist (@bapaucient.bsky.social), 26golivee (@26golivee.bsky.social), murowolf (@murowolf.bsky.social), and Kat (@felinethingy.bsky.social) follow open zoophiles.
 356. Sean (@cyberkat16.bsky.social), Cookie Cat (@coookiecat.bsky.social), knottedbitch (@knottedbitch.bsky.social), gross mutt (@gross-mutt.bsky.social), Seith Kandja (@dogcookielover.bsky.social), evyn (@pikababy666.bsky.social), and Foxxxie (@foxxxie.bsky.social) are open zoophiles.
-357. furryctr36 (@furryctr36.bsky.social) is an open zoophile: (<https://archive.today/u5BO8>).
-358. Big Richard (@dafuckdolphin.bsky.social), MattLegoober (@mattcay.bsky.social), Griz (@grizzeld.bsky.social), starpup (@rottdmuttx.bsky.social), Skunny Skunk (@umbreavera.bsky.social), Outkart (@outkartish.bsky.social), and Narugit (@narugit.bsky.social) are open zoophiles.
+357. Big Richard (@dafuckdolphin.bsky.social), MattLegoober (@mattcay.bsky.social), Griz (@grizzeld.bsky.social), starpup (@rottdmuttx.bsky.social), Skunny Skunk (@umbreavera.bsky.social), Outkart (@outkartish.bsky.social), and Narugit (@narugit.bsky.social) are open zoophiles.
