@@ -2,8 +2,6 @@
 
 The Laelaps labeller and its associated moderation lists for Bluesky (the Laelaps moderation lists and the Zoophile Mute List by heikadog) encompasses zoophiles and people who actively interact with or support them. This README serves as a directory of sorts, so everything associated with Laelaps and the Zoophile Mute List is readily accessible. Navigate using the links below.
 
-# Laelaps/Zoophile Mute List GitHub Repo
-
 The Laelaps labeller and its associated moderation lists for Bluesky (the Laelaps moderation lists and the Zoophile Mute List by heikadog) encompasses zoophiles and people who actively interact with or support them. This README serves as a directory of sorts, so everything associated with Laelaps and the Zoophile Mute List is readily accessible. Navigate using the links below.
 
 View and subscribe to the Laelaps labeller: <https://laelaps.fyi>.
