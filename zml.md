@@ -423,3 +423,4 @@ These stipulations prevent innocent people from being unfairly put on the list, 
 357. Myu (@myustraza.bsky.social), kittyinheat (@kittyinheat.bsky.social), ultrasillyy (@ultrasilly.bsky.social), and callie (@woofwoofwuf.bsky.social) follow open zoophiles.
 358. Dog Days (@proudzoo.bsky.social), Fur Gooner (@furgooner.bsky.social), Emmanuel Goldstein (@egoldstein.bsky.social), honorpawzz (@honorpawzz.bsky.social), Rain (@itsrainingdogs.bsky.social), and junethezoo (@junethezoo.bsky.social) are open zoophiles.
 359. Deviant Dreamz (@deviantdreamz.bsky.social) admitted to raping an animal: (<https://archive.today/QcoYj>).
+360. For the safety of our users, we've hidden an account that calls for zoophiles to mass-appeal bans on Bluesky, calling for the harassment of Bluesky moderators and continually drawing comparisons between zoophilia and queer expression.
