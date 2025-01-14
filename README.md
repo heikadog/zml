@@ -2,8 +2,6 @@
 
 The Laelaps labeller and its associated moderation lists for Bluesky (the Laelaps moderation lists and the Zoophile Mute List by heikadog) encompasses zoophiles and people who actively interact with or support them. This README serves as a directory of sorts, so everything associated with Laelaps and the Zoophile Mute List is readily accessible. Navigate using the links below.
 
-The Laelaps labeller and its associated moderation lists for Bluesky (the Laelaps moderation lists and the Zoophile Mute List by heikadog) encompasses zoophiles and people who actively interact with or support them. This README serves as a directory of sorts, so everything associated with Laelaps and the Zoophile Mute List is readily accessible. Navigate using the links below.
-
 View and subscribe to the Laelaps labeller: <https://laelaps.fyi>.
 
 To mute or block the accounts on a Laelaps moderation list, select one of the links below and select "Subscribe" at the upper-right corner of the list page. When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To share the list in question, select the arrow to the right of the Subscribe button.
