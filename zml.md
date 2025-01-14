@@ -1,7 +1,5 @@
 # Laelaps/Zoophile Mute List: Information & Evidence
 
-# Laelaps/Zoophile Mute List: Information & Evidence
-
 ## Table of contents
 
 1. [Information](#information)
