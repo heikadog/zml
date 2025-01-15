@@ -421,7 +421,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. FoxVomitArts (@foxvomit.bsky.social) interacts with zoophiles. It made art with an open zoophile, Soren, (<https://archive.today/j2JIT>) and follows several open zoophiles.
 1. Luci (@honorpawz.bsky.social), Alter (@alterstripes.bsky.social), Knottyjena (@jenahaze.bsky.social), and Rut in Mutt Butt (@muttrutt.bsky.social) are open zoophiles.
 1. SpotzDottz (@spotzdottz.bsky.social), Zemen (@z-men.bsky.social), Fenrir (@femrir.bsky.social), and the-ghost-fucker (@the-ghost-fucker.bsky.social) follow open zoophiles.
-1. juan-doe-drei (@juan-doe-drei.bsky.social) is an open zoophile: (<https://archive.today/CzZdH>).
 1. FluffyWuffyTuffy (@fluffywuffytuffy.bsky.social) is an open zoophile.
 1. Rune (@feralmarsupial.bsky.social), Doggydeer (@doggydeer.bsky.social), jodrago (@jodrago.bsky.social), lemoncatto (@lemoncatto.bsky.social), aussieshepherd (@aussieshepherd.bsky.social), Vi (@vi-nightingale.bsky.social), mint636436 (@mint636436.bsky.social), Rosettes (@rosettes.bsky.social), hambeargrr (@hambeargrr.bsky.social), HyperactiveSniper (@strictlyhorni.bsky.social), and Quinazagga (@quinazagga.bsky.social) follow open zoophiles.
 1. Couger.silverpaws (@couger.bsky.social) follows open zoophiles. Additionally, their bio says they're "LGBTQZ friendly," where the Z is implied to stand for "zoophiles."
