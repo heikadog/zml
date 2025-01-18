@@ -241,7 +241,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. dogoflife (@dogoflife.bsky.social), k969 (@k969.bsky.social), Zoomy Cat (@zoomycat.bsky.social), high4lifedude (@high4lifedude.bsky.social), howler (@howlerzeta.bsky.social), and 0ffbrand (@0ffbrand.bsky.social) are open zoophiles.
 1. SexualizedPonies (@sexualizedpony.bsky.social), phiner (@phiner.bsky.social) follow open zoophiles, joejoe (@joejoe4games.bsky.social) and Kas (@boytiger.bsky.social) follow open zoophiles.
 1. A Logical Thylacine (@logicthylacine.bsky.social) is an open zoophile. Even though their account is locked, their Twitter bio has a particular series of coded symbols that act as shorthand for their experiences with zoophilia, otherwise known as a "Zoo Code": (<https://archive.today/P1gjr>). _[It wasn't archived, but we should note the same code format was also on Thera's profile before it got suspended.]_ They also only follow open zoophiles.
-1. PumpyToy (@pumpytoy.bsky.social), Queen Cozy Glow (@zooqueen.bsky.social), The Trans Grinlin Queen (@nexiumnexus.bsky.social), Raine (@raineyote.bsky.social), rainbowkitty (@rainbowkitty.bsky.social), and cloacaposter (@cloacaposter.bsky.social) are open zoophiles.
+1. PumpyToy (@pumpytoy.bsky.social), The Trans Grinlin Queen (@nexiumnexus.bsky.social), Raine (@raineyote.bsky.social), rainbowkitty (@rainbowkitty.bsky.social), and cloacaposter (@cloacaposter.bsky.social) are open zoophiles.
 1. regg00 (@regg00.bsky.social) and BasilTheFolf (basilthefolf.bsky.social) follow open zoophiles.
 1. Valence (@valencethedeer.bsky.social), otherwise known as Quantum Kitty, is a convicted zoosadist: (<https://archive.today/gSisX>).
 1. Miles (@milesthezshep.bsky.social) is an open zoophile.
