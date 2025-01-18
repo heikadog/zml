@@ -122,8 +122,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kane (@canidliker.bsky.social) is an open zoophile.
 1. Kharrs (@kharrs.bsky.social) is an open zoophile on multiple bestiality forums: (<https://archive.today/Vdw7e>).
 1. bear (@davidbear.bsky.social), Woofingfox (@woofingfox.bsky.social), and Thunder Roodog (@thunderroo.bsky.social) follow and interact with open zoophiles.
-1. Rox (@roxanathewolf.bsky.social) is an open zoophile.
-1. Jade (@jadeeyedwere.bsky.social) is an open zoophile. Though1 they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.today/X97XI>), they follow open zoophiles on Bluesky, and they're dating an open zoophile.
+1. Rox (@roxanathewolf.bsky.social) and Jade (@jadeeyedwere.zoo-x-p.com) are open zoophiles.
 1. Machine Animal (@machineanimal.bsky.social) is mutuals with open zoophiles.
 1. PsychedelicYops (@psychedelicyops.pet) follows several closeted zoophiles and liked a post from WolfJLupus, an open zoophile: (<https://archive.today/TSJ7J>).
 1. void (@puppyvoid.bsky.social) follows several open zoophiles.
