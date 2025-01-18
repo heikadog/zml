@@ -270,7 +270,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. MareLover (@marelover.bsky.social) and The lover (@rslima.bsky.social) are open zoophiles.
 1. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
 1. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), and zedazoup (@zedazoup.bsky.social) are open zoophiles.
-1. Kat (@fictokothfan.bsky.social) is a "zoo ally," according to their bio.
+1. Kat (@fictofamilyguyfan.from.wtf) is a "zoo ally," according to their bio.
 1. Maldrasen (@maldrasen.bsky.social) is an open zoophile.
 1. HornyBoy (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), Lexex (@lex90.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
 1. Fley the Dragon (@fleythedragon.bsky.social) and ell (@ellbust.bsky.social) are open zoophiles.
