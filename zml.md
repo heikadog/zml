@@ -431,4 +431,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dog Days (@proudzoo.bsky.social), Fur Gooner (@furgooner.bsky.social), Emmanuel Goldstein (@egoldstein.bsky.social), honorpawzz (@honorpawzz.bsky.social), Rain (@itsrainingdogs.bsky.social), and junethezoo (@junethezoo.bsky.social) are open zoophiles.
 1. Deviant Dreamz (@deviantdreamz.bsky.social) admitted to raping an animal: (<https://archive.today/QcoYj>).
 1. For the safety of our users, we've hidden an account that calls for zoophiles to mass-appeal bans on Bluesky, calling for the harassment of Bluesky moderators and continually drawing comparisons between zoophilia and queer expression.
-1. CuziK9 (@cuzik9.bsky.social), Adeline (@addeline.bsky.social), Pup Azzy (@pupazzy.bsky.social), and Wyler Kennedy (@ffistffaggot.bsky.social) are open zoophiles.
+1. CuziK9 (@cuzik9.bsky.social), Adeline (@addeline.bsky.social), Pup Azzy (@pupazzy.bsky.social), Wyler Kennedy (@ffistffaggot.bsky.social), PupAsterion (@pupasterion.bsky.social), and Josephine (@josephine-ah.bsky.social), and Cat Craze (@catcrazewonderland.bsky.social) are open zoophiles.
