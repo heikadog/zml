@@ -312,7 +312,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Rorgo the Pig (@deburorgo.bsky.social), neddybottom (@neddybottom.bsky.social), daddy8 (@daddy8.bsky.social), Lewsey FF (@lewseyff.bsky.social), petrakok89 (@petrakok89.bsky.social), The Bad 1 (@thebad1.bsky.social), and Decay (@decayingcorpse.bsky.social) follow open zoophiles.
 1. BeePZ (@beepz.bsky.social), Valor (@valorfur.bsky.social), and Eternal (@eternal-bones.bsky.social) are open zoophiles.
 1. Slightly Furry (@slightlyfurry.bsky.social) was named by ConStaffWatch as willingly associating with zoophiles like K0mpy and Ari: (<https://archive.today/wVfSb>). K0mpy, an owner of the bar Slightly Furry owns, admitted to liking animal sexual abuse media: (<https://archive.today/YiBdW>), made porn with Cenny: (<https://archive.today/J40Z1>), and is married to Ari, who has a zoophile pride sticker on his phone: (<https://archive.today/Z1jLG>).
-1. yugaslath (@yugaslath.bsky.social), and Malus (@malus.zone) follow open zoophiles.
+1. yugaslath (@yugaslath.bsky.social) and Malus (@malus.zone) follow open zoophiles.
 1. pennyplatypus (@pennyplatybus.bsky.social) is an open zoophile. They follow a zoophile podcast, and the background of their profile picture is the zoophile flag.
 1. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
 1. Dew (@dew-drops.bsky.social), Tuvik (@tuvik.bsky.social), and electrowulf (@electrowulf.bsky.social) are open zoophiles.
