@@ -353,7 +353,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Luna (@zetaluna.bsky.social), Yage (@yage11.bsky.social), fern (@lakeofsins.bsky.social), Dumb Dog (@dum-d0g.bsky.social), Ruin Seeker (@errisessel.bsky.social), ZuuBoy2k (@zuuboy2k.bsky.social), Lykon (@lykon.bsky.social), and Shiv (@shiv950.bsky.social) are open zoophiles.
 1. RachelTheFictionkin (@rachelgardner.bsky.social) is a zoophile, according to her own admission: (<https://archive.today/d3xZw>).
 1. Exotic Erotics (@exotic-erotics.bsky.social) is a manufacturer of sex toys. It uses lifecasting to manufacture its toys, which involves directly modeling the toys after an a real animal's genitals by stimulating and 3D scanning the animal's genitals. This is unethical.
-1. Dyl (@kinkybrowntwink.bsky.social), Synesthesia (@synesthesiacoyote.bsky.social), Mother (@astranovella.bsky.social), Mud (@muttmud.bsky.social), Dutch Otter (@bottomotter91.bsky.social), and puff (@blinkybutt.bsky.social) are open zoophiles.
+1. Dyl (@kinkybrowntwink.bsky.social), Synesthesia (@synesthesiacoyote.bsky.social), Mother (@astranovella.bsky.social), Mud (@muttmud.bsky.social), and puff (@blinkybutt.bsky.social) are open zoophiles.
 1. To protect our users and cull a potential network effect, we've hidden a pro-zoophile labeller for all Laelaps subscribers in addition to labelling and listing. _[This account has since been suspended by Bluesky, but we've kept this entry here for archival purposes.]_
 1. Wenda (@necroventi.bsky.social), lai (kittykatlover.bsky.social), GineFloki (ginef.bsky.social), and Spike (spike-morningstar.bsky.social) are open zoophiles.
 1. cutiepiezoo (@cutiepiezoo.bsky.social) and Rutger (@willowshroom.bsky.social) follow open zoophiles.
