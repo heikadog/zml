@@ -150,7 +150,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Adramedes (@adramedes.bsky.social) only follows zoophiles. Additionally, they run a zoophilic Telegram group, as evident from their Twitter: (<https://twitter.com/adramedes>).
 1. Kaie (@yooooote.bsky.social) follows open zoophiles. Additionally, they bought a badge from BirtyFur: (<https://bsky.app/profile/yooooote.bsky.social/post/3k6r6bz737726>), who frequently draws icons for and publicly associates with zoophiles: (<https://twitter.com/ExposeTheFV/status/1684853358593798144>).
 1. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
-1. Zooey Dot Pub (@zooeydotpub.zdu.se) is a zoophilic magazine.
 1. Doughnuts (@doughnutzooey.bsky.social) is an open zoophile.
 1. zenixhyena (@zenixhyena.bsky.social) and madhuaka (@madhuaka.bsky.social) follow open zoophiles.
 1. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), Salk (@salkott.bsky.social), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
