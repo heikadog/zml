@@ -435,3 +435,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. JAY (@babyfurfag.bsky.social), Mordakay (@pdzf.bsky.social), and wolfythecuddler (@wolfythecuddler.bsky.social) follow open zoophiles.
 1. Quentin Coyote (@quentincoyote.packmates.org.ap.brid.gy)'s evidence can be viewed here: (<https://archive.today/MG9do>). In particular, he was seen with a tattoo of a Greek zeta, a zoophilic dogwhistle, and made several statements in support of zoophiles, comparing zoophilia to the plight of LGBTQ+ people: (<https://archive.today/gM7Ul>).
 1. grey (@hydroblade.bsky.social) expressed support for zoophiles: (<https://archive.today/fVDyw>).
+1. Silver (@silverpupp.bsky.social), Luna (@z00eyluna.bsky.social), and WereWolfAndCub (@werewolfandcub.bsky.social) are open zoophiles.
