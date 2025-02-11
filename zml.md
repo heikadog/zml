@@ -436,5 +436,5 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Silver (@silverpupp.bsky.social), Luna (@z00eyluna.bsky.social), WereWolfAndCub (@werewolfandcub.bsky.social), and BenevolentDave (@benevolentdave.bsky.social) are open zoophiles.
 1. Cookie Lover (@lovedacookie.bsky.social) is an open zoophile. "Cookie" is a euphemism for a dog's vagina, and their header is a graphic in the colors of the zoophile flag.
 1. Wuff (@flufwuf.bsky.social), Theo Tiger (@theobrometiger.bsky.social), and atpunz (@atpunz.bsky.social) follow open zoophiles.
-1. Lea (@leablanket.bsky.social), throwaway66 (@throwaway66.bsky.social), and PokemonLoverUwU (@notavulpixkisser.bsky.social) are open zoophiles.
+1. Lea (@leablanket.bsky.social), throwaway66 (@throwaway66.bsky.social), PokemonLoverUwU (@notavulpixkisser.bsky.social), and aardvarklove (@aardvarklove.bsky.social) are open zoophiles.
 1. Toxic (@baxterartworks.com) outed themselves as a zoophile: (<https://archive.today/jnyeV>).
