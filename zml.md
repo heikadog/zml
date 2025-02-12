@@ -60,7 +60,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lukar (@lukar.feral.army) follows and interacts with open zoophiles: (<https://archive.today/NNeP5>).
 1. Kaptain (@kaptain.dog) was found openly harboring zoophiles in a DM and called people holding zoophiles accountable "a witch hunt," in addition to interacting with Cenny's AD. (<https://archive.today/N7xYv>).
 1. Huskeee (@huskeee.bsky.social) and ZoobyDoobyDoo (@zoobydoobydoo.bsky.social) are both open zoophiles who requested to be listed: (1: <https://archive.today/SYyUF> / 2: <https://archive.today/wtdxo>).
-1. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyoftheforest.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>).
 1. Akito (@akito.zooand.me) hosts a zoophile podcast and is an open zoophile: (<https://archive.today/FFb0z>).
 1. ~~ZooFur Faction (@zoo.pics) posts explicit images of IRL animal genitalia.~~ We’ve gotten this account taken down. To anyone who reported them or shared a post calling for them to be reported, thank you! 🎉
 1. 007bistromath (@007bistromath.bsky.social), Vex (@koolkanine.zooand.me), Ceres Fallen (@ceresfallen.bsky.social), and Akkuriss (@akkuriss.bsky.social) are open zoophiles.
@@ -438,3 +437,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Wuff (@flufwuf.bsky.social), Theo Tiger (@theobrometiger.bsky.social), and atpunz (@atpunz.bsky.social) follow open zoophiles.
 1. Lea (@leablanket.bsky.social), throwaway66 (@throwaway66.bsky.social), PokemonLoverUwU (@notavulpixkisser.bsky.social), and aardvarklove (@aardvarklove.bsky.social) are open zoophiles.
 1. Toxic (@baxterartworks.com) outed themselves as a zoophile: (<https://archive.today/jnyeV>).
+1. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyoftheforest.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>). And in 2025, she posted about being "zoosexual," or "zooromantic:" (<https://archive.today/ZmjjT>)
