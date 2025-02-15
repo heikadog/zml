@@ -432,7 +432,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. JAY (@babyfurfag.bsky.social), Mordakay (@pdzf.bsky.social), and wolfythecuddler (@wolfythecuddler.bsky.social) follow open zoophiles.
 1. Quentin Coyote (@quentincoyote.packmates.org.ap.brid.gy)'s evidence can be viewed here: (<https://archive.today/MG9do>). In particular, he was seen with a tattoo of a Greek zeta, a zoophilic dogwhistle, and made several statements in support of zoophiles, comparing zoophilia to the plight of LGBTQ+ people: (<https://archive.today/gM7Ul>).
 1. grey (@hydroblade.bsky.social) expressed support for zoophiles: (<https://archive.today/fVDyw>).
-1. Silver (@silverpupp.bsky.social), Luna (@z00eyluna.bsky.social), WereWolfAndCub (@werewolfandcub.bsky.social), and BenevolentDave (@benevolentdave.bsky.social) are open zoophiles.
+1. Luna (@z00eyluna.bsky.social), WereWolfAndCub (@werewolfandcub.bsky.social), and BenevolentDave (@benevolentdave.bsky.social) are open zoophiles.
 1. Cookie Lover (@lovedacookie.bsky.social) is an open zoophile. "Cookie" is a euphemism for a dog's vagina, and their header is a graphic in the colors of the zoophile flag.
 1. Wuff (@flufwuf.bsky.social), Theo Tiger (@theobrometiger.bsky.social), and atpunz (@atpunz.bsky.social) follow open zoophiles.
 1. Lea (@leablanket.bsky.social), throwaway66 (@throwaway66.bsky.social), PokemonLoverUwU (@notavulpixkisser.bsky.social), and aardvarklove (@aardvarklove.bsky.social) are open zoophiles.
