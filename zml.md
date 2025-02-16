@@ -203,7 +203,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. CalonFox (@calonfox.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they've referred to zoophiles a colloquial "we" on Twitter: (<https://archive.today/JAIux>), and they follow open zoophiles.
 1. Enu (@enulxaw.bsky.social), Ellie (@notellie.bsky.social), zooeyshitonly (@dogorgasm.bsky.social), Cloud fox (@cloudfox12.bsky.social), Frank (@itsjustafrank.bsky.social), Vinney (@vinn3y.bsky.social), and Azael (@azael653.bsky.social) are open zoophiles.
 1. otterhourpup (@otterhourpup.bsky.social), otterlovertai (@otterlovertai.bsky.social), and manlytears89 (@manlytears89.bsky.social) follow open zoophiles.
-1. Purrsuit (@purrsuit.bsky.social), Nettle Wolf (@nettlewolf.bsky.social), and ZootHoot (@mrrpmow.bsky.social) are open zoophiles.
+1. Purrsuit (@purrsuit.bsky.social) and ZootHoot (@mrrpmow.bsky.social) are open zoophiles.
 1. Valkyrie (@kawaiistarlight.online) is very likely another Sappho impersonator, even going so far as to link to a fake Sappho CuriousCat: (<https://bsky.app/profile/kawaiistarlight.online/post/3kdwdeggybk2i>). _(See our entry on Hypnotist Sappho for our stance on Sappho impersonators.)_ They're also currently following zoophiles.
 1. adonizwulf (@adonizwulf.bsky.social) and HuskyFortune (@huskyfortune.bsky.social) follow open zoophiles.
 1. Loona (@cryptic-loona.bsky.social) is an open zoophile.
