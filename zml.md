@@ -151,7 +151,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
 1. Doughnuts (@doughnutzooey.bsky.social) is an open zoophile.
 1. zenixhyena (@zenixhyena.bsky.social) and madhuaka (@madhuaka.bsky.social) follow open zoophiles.
-1. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), Salk (@salkott.bsky.social), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
+1. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
 1. Wybraniec (@wybranieczwi.bsky.social) is an open zoophile: (<https://archive.today/L2zHl>).
 1. Kaster (@pissbxtch.bsky.social) and fawnly (@fawnly.bsky.social) follow open zoophiles.
 1. Bear Huzk (@bearhuzk.bsky.social) is an open zoophile.
