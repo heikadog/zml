@@ -439,3 +439,5 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Toxic (@baxterartworks.com) outed themselves as a zoophile: (<https://archive.today/jnyeV>).
 1. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyoftheforest.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>). And in 2025, she posted about being "zoosexual," or "zooromantic:" (<https://archive.today/ZmjjT>).
 1. asherfox (@asherfox.bsky.social), KnottyBearChaser (@kinky2beark9.bsky.social), Mihko (@knotboy.bsky.social), and RyRy the Puppy (@piss-puppy.bsky.social) are open zoophiles.
+1. mardyphin (@mardyphin.bsky.social), TomKoeln (@tomkoeln.bsky.social), RabidMutt666 (@rabid-mutt-triple6.bsky.social), Zooeybou (@zooeybou.bsky.social), and Sonata Dusk (@z00sonata.bsky.social) are open zoophiles.
+1. alec74 (@alec74.bsky.social) follows open zoophiles.
