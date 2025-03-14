@@ -421,7 +421,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Couger.silverpaws (@couger.bsky.social) follows open zoophiles. Additionally, their bio says they're "LGBTQZ friendly," where the Z is implied to stand for "zoophiles."
 1. Oli (@oliiscool78.bsky.social) is an open zoophile. The background of their profile picture has the zoophile flag.
 1. Bi Hedonist (@bapaucient.bsky.social), 26golivee (@26golivee.bsky.social), murowolf (@murowolf.bsky.social), and Kat (@felinethingy.bsky.social) follow open zoophiles.
-1. Sean (@cyberkat16.bsky.social), Cookie Cat (@coookiecat.bsky.social), knottedbitch (@knottedbitch.bsky.social), gross mutt (@gross-mutt.bsky.social), Seith Kandja (@dogcookielover.bsky.social), evyn (@pikababy666.bsky.social), and Foxxxie (@foxxxie.bsky.social) are open zoophiles.
+1. Sean (@cyberkat16.bsky.social), Cookie Cat (@coookiecat.bsky.social), knottedbitch (@knottedbitch.bsky.social), gross mutt (@gross-mutt.bsky.social), Seith Kandja (@dogcookielover.bsky.social), and Foxxxie (@foxxxie.bsky.social) are open zoophiles.
 1. Big Richard (@dafuckdolphin.bsky.social), MattLegoober (@mattcay.bsky.social), Griz (@grizzeld.bsky.social), starpup (@rottdmuttx.bsky.social), Skunny Skunk (@umbreavera.bsky.social), Outkart (@outkartish.bsky.social), Narugit (@narugit.bsky.social), Hazard (@bio-haz.bsky.social), and Otti (@zottidoggyboyz.bsky.social) are open zoophiles.
 1. Myu (@myustraza.bsky.social), ultrasillyy (@ultrasilly.bsky.social), and callie (@woofwoofwuf.bsky.social) follow open zoophiles.
 1. Fur Gooner (@furgooner.bsky.social), Emmanuel Goldstein (@egoldstein.bsky.social), honorpawzz (@honorpawzz.bsky.social), Rain (@itsrainingdogs.bsky.social), and junethezoo (@junethezoo.bsky.social) are open zoophiles.
@@ -437,7 +437,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Wuff (@flufwuf.bsky.social), Theo Tiger (@theobrometiger.bsky.social), and atpunz (@atpunz.bsky.social) follow open zoophiles.
 1. Lea (@leablanket.bsky.social), throwaway66 (@throwaway66.bsky.social), PokemonLoverUwU (@notavulpixkisser.bsky.social), and aardvarklove (@aardvarklove.bsky.social) are open zoophiles.
 1. Toxic (@baxterartworks.com) outed themselves as a zoophile: (<https://archive.today/jnyeV>).
-1. Zena O’Brien/Liberty (@zenamobrien.bsky.social/@libertyoftheforest.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>). And in 2025, she posted about being "zoosexual," or "zooromantic:" (<https://archive.today/ZmjjT>).
+1. Zena O’Brien/Liberty (@liofthfo.bsky.social) tweeted about wishing to have sex with a horse in 2021: (<https://archive.today/9XR97>). And in 2025, she posted about being "zoosexual," or "zooromantic:" (<https://archive.today/ZmjjT>).
 1. asherfox (@asherfox.bsky.social), KnottyBearChaser (@kinky2beark9.bsky.social), Mihko (@knotboy.bsky.social), and RyRy the Puppy (@piss-puppy.bsky.social) are open zoophiles.
 1. mardyphin (@mardyphin.bsky.social), TomKoeln (@tomkoeln.bsky.social), RabidMutt666 (@rabid-mutt-triple6.bsky.social), Zooeybou (@zooeybou.bsky.social), and Sonata Dusk (@z00sonata.bsky.social) are open zoophiles.
 1. alec74 (@alec74.bsky.social) follows open zoophiles.
