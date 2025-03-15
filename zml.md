@@ -441,6 +441,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. asherfox (@asherfox.bsky.social), KnottyBearChaser (@kinky2beark9.bsky.social), Mihko (@knotboy.bsky.social), and RyRy the Puppy (@piss-puppy.bsky.social) are open zoophiles.
 1. mardyphin (@mardyphin.bsky.social), TomKoeln (@tomkoeln.bsky.social), RabidMutt666 (@rabid-mutt-triple6.bsky.social), Zooeybou (@zooeybou.bsky.social), and Sonata Dusk (@z00sonata.bsky.social) are open zoophiles.
 1. alec74 (@alec74.bsky.social) follows open zoophiles.
-1. Green faced zoo (@greenfacezoo.bsky.social), Faceless Freak (@hurtlesscore.bsky.social), ZooCanine (@zoocanine.bsky.social), KinkyBigBoynTX (@kbbntx.bsky.social), and freak of nature (@horserapekink.bsky.social) are open zoophiles.
+1. Green faced zoo (@greenfacezoo.bsky.social), Faceless Freak (@hurtlesscore.bsky.social), ZooCanine (@zoocanine.bsky.social), KinkyBigBoynTX (@kbbntx.bsky.social), freak of nature (@horserapekink.bsky.social), and kra5naya (@kra5naya.bsky.social) are open zoophiles.
 1. xyla (@angelprince.dev) supports zoophiles, saying people can be "bigoted" towards people with paraphilias: (<https://archive.today/c97ry>).
 1. yeensta (@yeensta.bsky.social) is dating RyRy the Puppy, a previously mentioned open zoophile.
