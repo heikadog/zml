@@ -313,7 +313,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. pennyplatypus (@pennyplatybus.bsky.social) is an open zoophile. They follow a zoophile podcast, and the background of their profile picture is the zoophile flag.
 1. pottedcanine (@pottedcanine.bsky.social), raptorpyre (@raptorpyre.bsky.social), and pinkie-pawbs (@pinkie-pawbs.bsky.social) follow open zoophiles.
 1. Dew (@dew-drops.bsky.social), Tuvik (@tuvik.bsky.social), and electrowulf (@electrowulf.bsky.social) are open zoophiles.
-1. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social/@internecreatur420.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
 1. Logan (@ashesoflogan.bsky.social) and Malique (@malique88.bsky.social) are open zoophiles.
 1. Valais/Fwucky (@valais.bsky.social/@fwucky.art/@baaboyz.bsky.social) is an open zoophile, according to a Fediverse instance: (<https://archive.today/uB2EG>). He posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
 1. Emberlynns (@emberlynns.bsky.social), Auroran Zeta (@pastelzetafox.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), ManuMare (@manumare.bsky.social), Rinko (@rinko-horsey.bsky.social), and Ravel (@noxxthesuccubus.bsky.social) are open zoophiles.
@@ -444,3 +443,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Green faced zoo (@greenfacezoo.bsky.social), Faceless Freak (@hurtlesscore.bsky.social), ZooCanine (@zoocanine.bsky.social), KinkyBigBoynTX (@kbbntx.bsky.social), freak of nature (@horserapekink.bsky.social), and kra5naya (@kra5naya.bsky.social) are open zoophiles.
 1. xyla (@angelprince.dev) supports zoophiles, saying people can be "bigoted" towards people with paraphilias: (<https://archive.today/c97ry>).
 1. yeensta (@yeensta.bsky.social) is dating RyRy the Puppy, a previously mentioned open zoophile.
+1. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@internecreatur420.bsky.social/@samanthathepissxn.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
