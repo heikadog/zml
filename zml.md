@@ -443,4 +443,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Green faced zoo (@greenfacezoo.bsky.social), Faceless Freak (@hurtlesscore.bsky.social), ZooCanine (@zoocanine.bsky.social), KinkyBigBoynTX (@kbbntx.bsky.social), freak of nature (@horserapekink.bsky.social), and kra5naya (@kra5naya.bsky.social) are open zoophiles.
 1. xyla (@angelprince.dev) supports zoophiles, saying people can be "bigoted" towards people with paraphilias: (<https://archive.today/c97ry>).
 1. yeensta (@yeensta.bsky.social) is dating RyRy the Puppy, a previously mentioned open zoophile.
-1. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@internecreatur420.bsky.social/@samanthathepissxn.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
+1. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social/@internecreatur420.bsky.social/@samanthathepissxn.bsky.social,.) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
