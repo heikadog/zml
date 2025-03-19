@@ -151,7 +151,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Wulf (@wulfwolfie.bsky.social) is an open zoophile.
 1. Doughnuts (@doughnutzooey.bsky.social) is an open zoophile.
 1. zenixhyena (@zenixhyena.bsky.social) and madhuaka (@madhuaka.bsky.social) follow open zoophiles.
-1. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), aqua (@aqua.zoo.wtf) are open zoophiles.
+1. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net), yourlocalfxmboy (@yourlocalfxmboy.bsky.social), and aqua (@aqua.zoo.wtf) are open zoophiles.
 1. Wybraniec (@wybranieczwi.bsky.social) is an open zoophile: (<https://archive.today/L2zHl>).
 1. Kaster (@pissbxtch.bsky.social) and fawnly (@fawnly.bsky.social) follow open zoophiles.
 1. Bear Huzk (@bearhuzk.bsky.social) is an open zoophile.
@@ -443,4 +443,5 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Green faced zoo (@greenfacezoo.bsky.social), Faceless Freak (@hurtlesscore.bsky.social), ZooCanine (@zoocanine.bsky.social), KinkyBigBoynTX (@kbbntx.bsky.social), freak of nature (@horserapekink.bsky.social), and kra5naya (@kra5naya.bsky.social) are open zoophiles.
 1. xyla (@angelprince.dev) supports zoophiles, saying people can be "bigoted" towards people with paraphilias: (<https://archive.today/c97ry>).
 1. yeensta (@yeensta.bsky.social) is dating RyRy the Puppy, a previously mentioned open zoophile.
-1. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social/@internecreatur420.bsky.social/@samanthathepissxn.bsky.social,.) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
+1. SamanthaTheVix/Freya Stoneheart (@samanthathefox.bsky.social/@freyastoneheart.bsky.social/@internecreatur420.bsky.social/@samanthathepissxn.bsky.social) paid a zoophile to "expose her" as one: (<https://archive.today/mLjaF>). Additionally, she has made multiple alts to circumvent blocks.
+1. Zoo pup (@zoopupuk.bsky.social), PissySatin (@pissysatin.bsky.social), and Livin' dead (@reedfag.bsky.social) are open zoophiles.
