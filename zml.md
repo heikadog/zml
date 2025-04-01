@@ -448,4 +448,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Love the Dragon (@lovethedog.bsky.social) said zoophilia is "gravely misunderstood:" (<https://archive.today/WGPNI>).
 1. Marisa (@marisavanima.bsky.social) is an open zoophile: (<https://archive.today/91EJO>).
 1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
-1. evyn (@bath-toys.bsky.social), lowlyhollow (@bruhskater.bsky.social), Cherryblob (@emicherry.bsky.social), Rotomi (@somelilbirdie.bsky.social), and Seraphina (@possiepaws.bsky.social) are open zoophiles.
+1. evyn (@bath-toys.bsky.social), lowlyhollow (@bruhskater.bsky.social), Cherryblob (@emicherry.bsky.social), Rotomi (@somelilbirdie.bsky.social), and Toffee (@puppipawsie.bsky.social) are open zoophiles.
