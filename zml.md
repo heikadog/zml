@@ -1,4 +1,4 @@
-# Laelaps/Zoophile Mute List: Information & idence
+# Laelaps/Zoophile Mute List: Information & Evidence
 
 ## Table of contents
 
