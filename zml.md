@@ -449,4 +449,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
 1. evyn (@bath-toys.bsky.social), lowlyhollow (@bruhskater.bsky.social), Cherryblob (@emicherry.bsky.social), Rotomi (@somelilbirdie.bsky.social), Toffee (@puppipawsie.bsky.social), Anziris (@anziris.bsky.social), and kaiman98 (@kaiman98.bsky.social) are open zoophiles.
 1. Dog the Puppy (@knottypuppydog.bsky.social) drew art explicitly referencing the zoophile flags: (<https://archive.today/6QH7i>).
-1. zenyth (@zetalef.bsky.social) and sneaky-spark (@sneaky-spark.bsky.social) are open zoophiles.
+1. cordelia (@zetalef.bsky.social), sneaky-spark (@sneaky-spark.bsky.social), and luca (@lucalsd.bsky.social) are open zoophiles.
