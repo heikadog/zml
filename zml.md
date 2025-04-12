@@ -208,9 +208,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Loona (@cryptic-loona.bsky.social) is an open zoophile.
 1. moteyote/motoryote (@od.dog) defended wild\_\_life, but additionally twisted several academic studies on CSAM into applying to all paraphilias and citing studies that ended up not supporting his claims anyway, as evident from this thread by @ExposeTheFV on Twitter: (<https://archive.today/O4i2C>).
 1. Jupiter (@jupiterisgay.bsky.social) and Rykes (@rykes.bsky.social) are open zoophiles.
-1. ShiUrx (@shiur.bsky.social) follows open zoophiles.
-1. Wibke (@wibkezeta.bsky.social) and Black Jack (@blackjackhamaza.bsky.social) are open zoophiles.
-1. TranzWolf (@tranzwolf.bsky.social) follows open zoophiles.
+1. ShiUrx (@shiur.bsky.social) and TranzWolf (@tranzwolf.bsky.social) follow open zoophiles.
 1. Ryke (@ryke.bsky.social/@rykead.bsky.social) is an open zoophile, currently sporting the Greek zeta in their current Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>).
 1. Lykos (@knot-dog.bsky.social) is an open zoophile.
 1. Dark Violet (@darkviolet.bsky.social) has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
