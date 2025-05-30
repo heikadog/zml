@@ -439,7 +439,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Love the Dragon (@lovethedog.bsky.social) said zoophilia is "gravely misunderstood:" (<https://archive.today/WGPNI>).
 1. Marisa (@marisavanima.bsky.social) is an open zoophile: (<https://archive.today/91EJO>).
 1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
-1. evyn (@bath-toys.bsky.social), lowlyhollow (@bruhskater.bsky.social), Cherryblob (@emicherry.bsky.social), Rotomi (@somelilbirdie.bsky.social), Toffee (@puppipawsie.bsky.social), Anziris (@anziris.bsky.social), and kaiman98 (@kaiman98.bsky.social) are open zoophiles.
+1. evyn (@bath-toys.bsky.social), lowlyhollow (@bruhskater.bsky.social), Cherryblob (@emicherry.bsky.social), Toffee (@puppipawsie.bsky.social), Anziris (@anziris.bsky.social), and kaiman98 (@kaiman98.bsky.social) are open zoophiles.
 1. Dog the Puppy (@knottypuppydog.bsky.social) drew art explicitly referencing the zoophile flags: (<https://archive.today/6QH7i>).
 1. cordelia (@zetalef.bsky.social), sneaky-spark (@sneaky-spark.bsky.social), luca (@lucalsd.bsky.social), Ozane (@ozane.zoolandia.org), Zach (@zetrassk.bsky.social), and ZoeyPaws (@zoeypaws.bsky.social) are open zoophiles.
 1. Sheeplovesdog (@sheeplovesdog.bsky.social), Alice (@gunther12.bsky.social), Berlin (@arfarfarfer.bsky.social), Kxltz (@gooddoggienobone.bsky.social), Horndog (@foxyplug.bsky.social), CookieEnjoyer (@madwillow.bsky.social), and Canidae (@caninecompanion420.bsky.social) are open zoophiles.
