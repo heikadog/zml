@@ -260,7 +260,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. MareLover (@marelover.bsky.social) and The lover (@rslima.bsky.social) are open zoophiles.
 1. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
 1. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), and zedazoup (@zedazoup.bsky.social) are open zoophiles.
-1. Kat (@fictofamilyguyfan.from.wtf) is a "zoo ally," according to their bio.
+1. Kat (@fictofamilyguyfan.from.wtf/@ficto-kats-blocks.bsky.social) is a "zoo ally," according to their bio.
 1. Maldrasen (@maldrasen.bsky.social) is an open zoophile.
 1. HornyBoy (@hornilittleboy.bsky.social), 2TailedFox (@2tailedfox.bsky.social), OmegaAlphaZeta (@omegaalphazeta.bsky.social), Lykaios/Aurora (@lykieninetales.bsky.social), and Hectalynn (@hectalynn.bsky.social) follow open zoophiles.
 1. Fley the Dragon (@fleythedragon.bsky.social) and ell (@ellbust.bsky.social) are open zoophiles.
@@ -385,7 +385,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Rory (@hornyidk.bsky.social), Wyldstag (@wyldstag.bsky.social), Void (@voidthevoiddragon.bsky.social), ImVeryFriendly (@zoorightsmvmnt.bsky.social), BunnieJ (@bunniej.bsky.social), Shelkdy (@sunsliced.bsky.social), smokindogdick (@smokindogdick.bsky.social), Gaban Lock (@gabanlock.bsky.social), and The Cute Plague Rat (@cuteplaguerat.bsky.social) are open zoophiles.
 1. Felynn Angel (@felynnangel.bsky.social) and Knottyluv (@chase01090.bsky.social) follow open zoophiles.
 1. Ghoul (@s1ghthound.bsky.social), kinkygay68 (@kinkygay68.bsky.social), HerdUtility (@herdz.bsky.social), PawkyPaws (@pawkypaw.bsky.social), Scared Link (@scared-link.bsky.social), FortuneFinder (@fortunecfinder.bsky.social), Tedious Dullard (@tediousdullard.bsky.social), and bgutterflylover (@bgutterflylover.bsky.social) are open zoophiles.
-1. Cowboi69 (@cwbi6.bsky.social) is an open zoophile. They referred to zoophiles as a "minority community:" (<https://archive.today/oOabA>), and was found posting on multiple zoophilic online forums under the same name, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret."
+1. Cowboi69 (@cwbi6.bsky.social) is an open zoophile. They referred to zoophiles as a "minority community:" (<https://archive.today/oOabA>), and posted on multiple zoophilic online forums under the same username, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret:" (<https://archive.today/URSpE>).
 1. Prof Lupus Sirius Lobato Fenrison (@lupussignatus.bsky.social) interacts with zoophiles, specifically interacting with a zoophile who posts animal genitalia: (<https://archive.today/E8ul8>).
 1. Zoo and Me (@zooand.me) is a zoophilic podcast.
 1. Vegas (@yagab0nd.bsky.social) and Sissy Tymber (@tstymber.bsky.social) are open zoophiles.
@@ -444,3 +444,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. cordelia (@zetalef.bsky.social), sneaky-spark (@sneaky-spark.bsky.social), luca (@lucalsd.bsky.social), Ozane (@ozane.zoolandia.org), Zach (@zetrassk.bsky.social), and ZoeyPaws (@zoeypaws.bsky.social) are open zoophiles.
 1. Sheeplovesdog (@sheeplovesdog.bsky.social), Alice (@gunther12.bsky.social), Berlin (@arfarfarfer.bsky.social), Kxltz (@gooddoggienobone.bsky.social), Horndog (@foxyplug.bsky.social), CookieEnjoyer (@madwillow.bsky.social), and Canidae (@caninecompanion420.bsky.social) are open zoophiles.
 1. FFauna (@ffaunaz.bsky.social), Softbite (@sowoftbite.bsky.social), malice / koda (@maypup.kawaii.social), Grit Catt (@gritcat.bsky.social), Logan (@celestialmists.bsky.social), Debbie (@girlbossposs.bsky.social), Zkeri (@zkeri2.bsky.social), and Arkuze (@arkuze.bsky.social) are open zoophiles.
+1. Zack Fox (@zackfoxzeta.bsky.social), Knots of fun (@aw000uwu.bsky.social), reedsmokes (@reedsmokes.bsky.social), and Lucas Ray (@lucasrayz.bsky.social) are open zoophiles.
