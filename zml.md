@@ -189,7 +189,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Wulkern (@wolfphilia.bsky.social) and Zoey (@zoeyzetadog.bsky.social) are open zoophiles.
 1. Buddy (@idkbuddy.bsky.social) and Edu (@eduprv.bsky.social) follow open zoophiles.
 1. Reindeer (@hundilein.bsky.social) is an open zoophile.
-1. Grohiik (@thegrohiik.bsky.social), Ell The Proud Zoo (@ellzeta.bsky.social), Fido (@fidofidelis.bsky.social), and greenglassdog (@greenglassdog.bsky.social) are open zoophiles.
+1. Ell The Proud Zoo (@ellzeta.bsky.social), Fido (@fidofidelis.bsky.social), and greenglassdog (@greenglassdog.bsky.social) are open zoophiles.
 1. pisps (@pisps.bsky.social), dogknot (@dogknot.bsky.social), Lex the Fox (@alexisvulpes.bsky.social), Silvar the Wuff (@silvarthewuff.bsky.social), and troubled (@troubled0.bsky.social) follow open zoophiles.
 1. Faint (@thatfox.bsky.social), Ragnar (@ragnar-zooey.bsky.social), Salzuki (@filthyanimalzoo.bsky.social), and c0smicprotogen (@c0smicprotogen.bsky.social) are open zoophiles.
 1. Empty brains (@weirdlizard.bsky.social) and Momma Magia Baiser (@not2btolerated.bsky.social) follow open zoophiles.
@@ -444,4 +444,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. cordelia (@zetalef.bsky.social), sneaky-spark (@sneaky-spark.bsky.social), luca (@lucalsd.bsky.social), Ozane (@ozane.zoolandia.org), Zach (@zetrassk.bsky.social), and ZoeyPaws (@zoeypaws.bsky.social) are open zoophiles.
 1. Sheeplovesdog (@sheeplovesdog.bsky.social), Alice (@gunther12.bsky.social), Berlin (@arfarfarfer.bsky.social), Kxltz (@gooddoggienobone.bsky.social), Horndog (@foxyplug.bsky.social), CookieEnjoyer (@madwillow.bsky.social), and Canidae (@caninecompanion420.bsky.social) are open zoophiles.
 1. FFauna (@ffaunaz.bsky.social), Softbite (@sowoftbite.bsky.social), malice / koda (@maypup.kawaii.social), Grit Catt (@gritcat.bsky.social), Logan (@celestialmists.bsky.social), Debbie (@girlbossposs.bsky.social), Zkeri (@zkeri2.bsky.social), and Arkuze (@arkuze.bsky.social) are open zoophiles.
-1. Zack Fox (@zackfoxzeta.bsky.social), Knots of fun (@aw000uwu.bsky.social), reedsmokes (@reedsmokes.bsky.social), and Lucas Ray (@lucasrayz.bsky.social) are open zoophiles.
+1. Zack Fox (@zackfoxzeta.bsky.social), Knots of fun (@aw000uwu.bsky.social), and reedsmokes (@reedsmokes.bsky.social) are open zoophiles.
