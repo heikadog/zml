@@ -23,7 +23,7 @@ _[If you want to use one moderation list that encompasses every account Laelaps 
 To be labelled, candidates should meet at least one or more of these criteria:
 
 1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the Greek letter zeta (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name.
-2. Actively interacting with open zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large number of open zoophiles.
+2. Actively interacting with open zoophiles. This includes, but is not limited to: liking or reposting posts related to, replying to, or following a large amount of open zoophiles.
 3. Supporting or defending zoophiles or their associates, or creating spaces that welcome zoophiles.
 4. Being publicly identified as a zoophile by a reputable whistleblower, or being found participating in conversations which advocate for or admit to zoophilic acts.
 
@@ -445,4 +445,5 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Sheeplovesdog (@sheeplovesdog.bsky.social), Alice (@gunther12.bsky.social), Berlin (@arfarfarfer.bsky.social), Kxltz (@gooddoggienobone.bsky.social), Horndog (@foxyplug.bsky.social), CookieEnjoyer (@madwillow.bsky.social), and Canidae (@caninecompanion420.bsky.social) are open zoophiles.
 1. FFauna (@ffaunaz.bsky.social), Softbite (@sowoftbite.bsky.social), malice / koda (@maypup.kawaii.social), Grit Catt (@gritcat.bsky.social), Logan (@celestialmists.bsky.social), Debbie (@girlbossposs.bsky.social), Zkeri (@zkeri2.bsky.social), and Arkuze (@arkuze.bsky.social) are open zoophiles.
 1. Zack Fox (@zackfoxzeta.bsky.social), Knots of fun (@aw000uwu.bsky.social), reedsmokes (@reedsmokes.bsky.social), SolderMouse (@soldermouse.bsky.social), and CanineFucker (@caninefucker.bsky.social) are open zoophiles.
-1. CooZooLoo (@z0ooooo.bsky.social), Zephyr the Ferret (@zeetaboy.bsky.social), Lysol (@lysolthezoo.bsky.social), and cookiesmellersnorf (@cookiesmellersnorf.bsky.social) are open zoophiles.
+1. CooZooLoo (@z0ooooo.bsky.social), Zephyr the Ferret (@zeetaboy.bsky.social), Lysol (@lysolthezoo.bsky.social), cookiesmellersnorf (@cookiesmellersnorf.bsky.social), and Queen Cozy Glow (@queencozyglow.bsky.social) are open zoophiles.
+1. Despite having "zoo DNI" in their bio, BarkBrainedBeta (@barkbrainedbeta.bsky.social) follows a large amount of open zoophiles.
