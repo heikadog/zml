@@ -444,7 +444,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. FFauna (@ffaunaz.bsky.social), Softbite (@sowoftbite.bsky.social), malice / koda (@maypup.kawaii.social), Grit Catt (@gritcat.bsky.social), Logan (@celestialmists.bsky.social), Debbie (@girlbossposs.bsky.social), Zkeri (@zkeri2.bsky.social), and Arkuze (@arkuze.bsky.social) are open zoophiles.
 1. Knots of fun (@aw000uwu.bsky.social), reedsmokes (@reedsmokes.bsky.social), SolderDog (@solder.dog), and CanineFucker (@caninefucker.bsky.social) are open zoophiles.
 1. CooZooLoo (@z0ooooo.bsky.social), Zephyr the Ferret (@zeetaboy.bsky.social), Lysol (@lysolthezoo.bsky.social), cookiesmellersnorf (@cookiesmellersnorf.bsky.social), and Queen Cozy Glow (@queencozyglow.bsky.social) are open zoophiles.
-1. Despite having "zoo DNI" in their bio, BarkBrainedBeta (@barkbrainedbeta.bsky.social) follows a large amount of open zoophiles.
+1. BarkBrainedBeta (@barkbrainedbeta.bsky.social) follows a large amount of open zoophiles.
 1. mars (@pupbrained.dev/@mardpupbrained.bsky.social) was outed as a zoophile in January of 2025: (<https://ghostarchive.org/archive/ZY6aa>). Notably, they followed zoophiles on a private Twitter account: (<https://archive.today/VzLF7>). At one point, they said that "ZooeyDonk has some really good shit," referring to a now-defunct Twitter account which posted animal genitalia: (<https://archive.today/MC1rR>).
 1. Furry Valley, a group run by a notorious zoosadist, has created a Bluesky account modeled after "The Furry Detectives," an upcoming docuseries about the 2018 zoosadism leaks. This account has nothing to do with the series and intends to mislead. We've hidden it for Laelaps users.
-1. Lee Jade (@leejadezeta.bsky.social) is an open zoophile.
+1. Lee Jade (@leejadezeta.bsky.social), Arlo the Otter (@domotter90.bsky.social), VoidFur (@voidfur33.bsky.social), and Brass Bulldog (@brassbulldog.bsky.social) are open zoophiles.
