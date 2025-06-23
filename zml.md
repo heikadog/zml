@@ -448,3 +448,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Furry Valley, a group run by a notorious zoosadist, has created a Bluesky account modeled after "The Furry Detectives," an upcoming docuseries about the 2018 zoosadism leaks. This account has nothing to do with the series and intends to mislead. We've hidden it for Laelaps users.
 1. Lee Jade (@leejadezeta.bsky.social), Arlo the Otter (@domotter90.bsky.social), VoidFur (@voidfur33.bsky.social), and Brass Bulldog (@brassbulldog.bsky.social) are open zoophiles.
 1. BarkBrainedBeta (@barkbrainedbeta.bsky.social) is an open zoophile: (<https://archive.today/oYC6H>).
+1. krcon (@krcon.bsky.social) admitted to being a zoophile in a FurAffinity journal: (<https://archive.today/V96UX>).
