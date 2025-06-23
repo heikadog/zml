@@ -367,7 +367,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Bäranarchie (@baeranarchie.bsky.social), honey (@lvrkingz.bsky.social), Newt (@comship.bsky.social), and Zooey Vulpix (@vye-z.bsky.social) are open zoophiles.
 1. felixx (@stonerpupp.bsky.social) and Gyzmo (@gyzmozoo.bsky.social) are open zoophiles.
 1. insurgent (@insurgent.bsky.social), Knotty Melissa (@sissymelissatx.bsky.social), and oliolilover (@oliolilover.bsky.social) follow open zoophiles.
-1. holymeowy (@holymeowy.bsky.social), Jairo Lupus (@jairolupus.bsky.social), Sylvie (@delusions-of-four.bsky.social), Zam (@vpnx.bsky.social), Calypso (@zooeycalypso.bsky.social), and Silver (@silverpup.bsky.social) are open zoophiles.
+1. holymeowy (@holymeowy.bsky.social), Jairo Lupus (@jairolupus.bsky.social), Waril (@delusions-of-four.bsky.social), Zam (@vpnx.bsky.social), Calypso (@zooeycalypso.bsky.social), and Silver (@silverpup.bsky.social) are open zoophiles.
 1. mickey (@micksstick.bsky.social), kore (@nawgla.bsky.social), zoolynn (@zoolynn.bsky.social), ZiePhi (@ziephi.bsky.social), Violet (nymph0mania.bsky.social), hentailia (@hentailia.bsky.social), and KG (@kedrickgale.bsky.social) are open zoophiles.
 1. Nuki Junior (@juniorheelercub.bsky.social) follows open zoophiles.
 1. Madeline (@pupofsin.bsky.social) is an open zoophile: (<https://archive.today/GAs2I>).
