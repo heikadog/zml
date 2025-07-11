@@ -253,7 +253,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Bonestone (@bonestone.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
 1. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 1. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia:" (<https://archive.today/aG9Tb>).
-1. Jamie Sharp (@jamiesharp.bsky.social/@yiffkitty.bsky.social ) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
+1. Jamie Sharp (@jamiesharp.bsky.social/@yiffkitty.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
 1. MareLover (@marelover.bsky.social) and The lover (@rslima.bsky.social) are open zoophiles.
 1. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
 1. aves (@ornithophile.bsky.social), Tariaaa (@tariaaa.bsky.social), and zedazoup (@zedazoup.bsky.social) are open zoophiles.
