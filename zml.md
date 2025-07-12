@@ -58,7 +58,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Papa Rhino (@paparhino.dad/@papamord.bsky.social) is a zoophile. I worked on an outing about him with reputable whistleblower ExposeTheFV, linking him to his alt, JDonk (@zooeydonk.bsky.social) _[Now suspended, but leaving here for reference.]_, and showing he's a zoophile (and has publicly interacted with minors as young as 14): (<https://twitter.com/ExposeTheFV/status/1730851018416771097>). He even liked a reply to JDonk's tweet _about_ JDonk being Rhino: (<https://twitter.com/ExposeTheFV/status/1730851024393691197>).
 1. Soren (@feral4feral.art) is an open zoophile.
 1. Lukar (@lukar.feral.army) follows and interacts with open zoophiles: (<https://archive.today/NNeP5>).
-1. Kaptain (@kaptain.dog) was found openly harboring zoophiles in a DM and called people holding zoophiles accountable "a witch hunt," in addition to interacting with Cenny's AD. (<https://archive.today/N7xYv>).
+1. Kaptain (@kaptain.dog) was found openly harboring zoophiles in a DM and called people holding zoophiles accountable "a witch hunt:" (<https://archive.today/N7xYv>).
 1. Huskeee (@huskeee.bsky.social) and ZoobyDoobyDoo (@zoobydoobydoo.bsky.social) are both open zoophiles who requested to be listed: (1: <https://archive.today/SYyUF> / 2: <https://archive.today/wtdxo>).
 1. Akito (@akito.zooand.me) hosts a zoophile podcast and is an open zoophile: (<https://archive.today/FFb0z>).
 1. 007bistromath (@007bistromath.bsky.social), Vex (@koolkanine.zooand.me), Ceres Fallen (@ceresfallen.bsky.social), and Akkuriss (@akkuriss.bsky.social) are open zoophiles.
