@@ -16,6 +16,7 @@ _[If you want to use one moderation list that encompasses every account Laelaps 
 ## Directory
 
 - Read the evidence: <https://zml.heika.dog>
-- To report an account to be labelled, follow these instructions: (<https://bsky.app/profile/laelaps.fyi/post/3ky4mvys7qkq3>). For more complex issues, you can submit accounts to be labelled, appeal a label, or submit feedback here: <https://zmlform.heika.dog>.
+- To report an account to be labelled, follow these instructions: (<https://bsky.app/profile/laelaps.fyi/post/3ky4mvys7qkq3>).
+  - For more complex issues, you can submit accounts to be labelled, appeal a label, or submit feedback here: <https://zmlform.heika.dog>.
 
 Because there's already an in-app reporting process and a form to submit accounts to the labeller and appeal a label, don't submit them as a pull request. Instead, report or appeal labels in the app or at <https://zmlform.heika.dog>. This way, we can ensure your response is kept confidential and we can get as much information as possible. Only submit a pull request if you have a suggestion or fix for this GitHub repo itself.
