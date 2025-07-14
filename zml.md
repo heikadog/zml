@@ -450,3 +450,5 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Melcifer (@melciferrr.bsky.social), Bailey Shep (@neuterred.bsky.social/@brattymawz.bsky.social), somethinzooey (@somethinzooey.bsky.social), Ashley Kitti (@ashley6924.bsky.social), and Legolas the Maned Wolf (@legolaslupus.bsky.social) are open zoophiles.
 1. Riedn (@riedn.bsky.social) follows open zoophiles.
 1. the painted collective (@painted.social) supports zoophiles: (<https://archive.today/dRYYd>). They posted an image reading, "zoo pride saves lives" with a zoophilic flag, but it's unclear whether this person is a zoophile themselves. We'll update this entry if we get new information.
+1. Yokonovish (@yokonovish.bsky.social) is an open zoophile: (<https://archive.today/kBa1R>).
+1. Heather (@kindredpaws.bsky.social), koda (@ghuulishh.bsky.social), and Fluff Xing (@emokonekoyasha.bsky.social) are open zoophiles.
