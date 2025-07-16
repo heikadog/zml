@@ -20,6 +20,8 @@ To mute or block the accounts on a Laelaps moderation list, select one of the li
 
 _[If you want to use one moderation list that encompasses every account Laelaps labels, you can subscribe to the legacy Zoophile Mute List by heikadog here: <https://bsky.app/profile/heika.dog/lists/3k3eg23h7ko2i>.]_
 
+You can support Laelaps' server and domain costs by donating to our Ko-fi: <https://ko-fi.com/laelapsfyi>.
+
 To be labelled, candidates should meet at least one or more of these criteria:
 
 1. Publicly identifying as a zoophile. This includes profiles with known coded dogwhistles like the Greek letter zeta (ζ), the triangles and four-pointed star (◤✦◢), or the Phoenician aleph (𐤀), or having a handle that's linked to a zoophile-centric domain name.
