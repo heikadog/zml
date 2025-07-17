@@ -236,7 +236,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Miles (@milesthezshep.bsky.social) is an open zoophile.
 1. Mango (@mangoking.bsky.social) and wlightning245 (@wlightning245.bsky.social) follow open zoophiles.
 1. K9Nomad (@k9nomad.zoofurs.net) and Quetzal (@quetzalkreep.bsky.social) are open zoophiles.
-1. hothorses (@hothorses.bsky.social), and Forest (@vesperthefluff.bsky.social) follow open zoophiles.
+1. hothorses (@hothorses.bsky.social) follows open zoophiles.
 1. Rax (@raxrex.bsky.social), UnusualHorse (@unusualhorse.bsky.social), Kazuma (@kazumathehorse.bsky.social), and RealGrayWoof (@realgraywoof.bsky.social) are open zoophiles.
 1. wufferz (@wufferz.bsky.social) is an open zoophile. Though they don't say it on Bluesky, their Twitter has the zeta symbol in its bio: (<https://archive.today/bSV84>), and they follow open zoophiles on Bluesky.
 1. NightyBurr/Paper-Wings (@nightyburr.art) is a zoophile. She willingly associates with open zoophiles like WolfJLupus, even taking a commission for Telegram stickers of WolfJLupus in 2018 and including a "zoo pride" sticker: (<https://archive.today/DJy4D>). _[For transparency's sake, we've archived the InkBunny page for the stickers on archive.today: (<https://archive.today/w0Ydf>)]_ And in 2020, she co-founded a virtual furry convention called FeralCon, which turned out to actively harbor zoophiles (read the whole thread): (<https://twitter.com/ConStaffWatch/status/1284268195877019650>).
@@ -249,7 +249,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zeta Yeen (@zetayeen.bsky.social) is an open zoophile according to their Twitter: (<https://archive.today/Xfawd>).
 1. FuralCol (@furalcol.bsky.social), ThatOneLeafy (@zooeyspriggy.bsky.social), Sparkle Cloud (@sparklecloud.zoofurs.net), and Vandal (@stupidgirlthing.bsky.social) are open zoophiles.
 1. Blue (@sheppypaws53.bsky.social), Sundog (@zsundog.bsky.social), and Rosielynn (@rosielynn.bsky.social) are open zoophiles.
-1. Bonestone (@bonestone.bsky.social), Flower (@flowerlykitten.bsky.social), and ells (@ellsiez.bsky.social) follow open zoophiles.
+1. Bonestone (@bonestone.bsky.social) and ells (@ellsiez.bsky.social) follow open zoophiles.
 1. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 1. Abomina Blight (@abominablight.bsky.social) said "there's nothing wrong with zoophilia or pedophilia:" (<https://archive.today/aG9Tb>).
 1. Jamie Sharp (@jamiesharp.bsky.social/@yiffkitty.bsky.social) openly sympathizes with Cenny, a known zoophile. We've archived a callout on Jamie and the original poster's DM conversation with Jamie here: (<https://archive.today/UvWsl>). Additionally, they had Zoophilia as a "Yes" on their F-List as recently as 2021: (<https://archive.today/1ANkh>).
@@ -288,7 +288,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. AwesomeCat (@awesomecat.bsky.social), pupgrrl (@pupgrrl.bsky.social), Cervuss (@cervuss.bsky.social), tgthezoo (@tgthezoo.bsky.social), and RedistributorKitty (@redistributorkitty.bsky.social), and AnonymousDerg (@zooeyderg.bsky.social) are open zoophiles.
 1. utsuho (@suffernofools.bsky.social) says in their bio that they support zoophiles.
 1. In 2015, K0mpy (@k0mpy.butt.dog) tweeted that he viewed "zoo" as a guilty pleasure: (<https://archive.today/3TZDv>). Notably, his husband is liondogari/Ari/Dog Dad, who we previously outed for having a "zoo pride" sticker on his phone as of April 2024. K0mpy and Ari's Fetlife accounts verify that they're husbands: (<https://archive.today/1j2Le>).
-1. transfurperv (@transfurperv.bsky.social), Kibbie (@kibbieuwu.bsky.social), timggyest113 (@timggyest113.bsky.social), hibiscux064 (@hibiscux064.bsky.social), Unbound Rainbow Abyss (@unbound-abyss.bsky.social), and A pretty good dog (@fourpawsnolaws.bsky.social) follow open zoophiles.
+1. transfurperv (@transfurperv.bsky.social), Kibbie (@kibbieuwu.bsky.social), timggyest113 (@timggyest113.bsky.social), and A pretty good dog (@fourpawsnolaws.bsky.social) follow open zoophiles.
 1. Mani (@manicolp.bsky.social), Zippy Zebra (@zippyzebra.bsky.social), and Aro the oddest ott (@lilbabyclex.bsky.social) are open zoophiles.
 1. theefoxy (@theefoxy.bsky.social) and Felis (@moonfeline.bsky.social) follow open zoophiles.
 1. Tekfox (@tekfox.bsky.social) and Dire (@direprophecies.bsky.social) were accused of being zoophiles by multiple sources in Telegram messages to ConStaffWatch, pictured hanging out with Akari and several other zoophiles at a ski meet called Furry Ski Weekend: (<https://archive.today/kno0f>). The founders of the ski meet, Dire, Tekfox, and another fursuiter named Tuaolo, were friends with now-convicted zoosadist and pedophile Cupid the Deer, even after allegedly banning him from the meets when he got convicted: (<https://archive.today/2zn5Q>). Additionally, they've long been friends with Lycaon Victus, who has gone on record saying he's a zoophile: (<https://archive.today/0l7mq>) years after he was open about being a zoophile: (1: <https://archive.today/gSsgN> / 2: <https://archive.today/UtPd3>).
