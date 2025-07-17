@@ -128,7 +128,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. void (@puppyvoid.bsky.social) follows several open zoophiles.
 1. JenklinDog (@jenklindog.bsky.social) follows several open zoophiles.
 1. ZoroAluna (@zoroaluna.bsky.social), Maple (@mapleden.bsky.social), and darksideofazoo (@darksideofazoo.bsky.social) are open zoophiles.
-1. Lev (@levthsa.bsky.social) and Cepheus Konev (@cepheusthepooka.bsky.social) follow open zoophiles.
+1. Lev (@levthsa.bsky.social) follows open zoophiles.
 1. Apollo (@apolloshibe.feral.army) follows known zoophiles. Additionally, in 2023, he had a conversation with an open zoophile on Twitter: (<https://archive.today/cPYCp>). _[We'd like to note that the zoophile's half of the conversation was never archived and has since been lost to time, but we've archived Apollo's half of the conversation in addition to providing a screenshot taken a day after the original exchange.]_ Archives of Apollo's half of the conversation: (1: <https://archive.today/JAgUE> / 2: <https://archive.today/jvJDj> / 3: <https://archive.today/zsnR4>).
 1. Cojo (@cojo.feral.army) follows known zoophiles and lists Zoophilia as a "Fave" on their F-List: (<https://archive.today/aLl5w>).
 1. Murphy (@bitchmurph.bsky.social) is an open zoophile.
@@ -198,7 +198,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Taolis Nova (@taolistheumbreon.bsky.social) follows open zoophiles.
 1. CalonFox (@calonfox.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they've referred to zoophiles a colloquial "we" on Twitter: (<https://archive.today/JAIux>), and they follow open zoophiles.
 1. Enu (@enulxaw.bsky.social), Ellie (@notellie.bsky.social), zooeyshitonly (@dogorgasm.bsky.social), Cloud fox (@cloudfox12.bsky.social), Frank (@itsjustafrank.bsky.social), Vinney (@vinn3y.bsky.social), and Azael (@azael653.bsky.social) are open zoophiles.
-1. otterhourpup (@otterhourpup.bsky.social), otterlovertai (@otterlovertai.bsky.social), and manlytears89 (@manlytears89.bsky.social) follow open zoophiles.
+1. otterhourpup (@otterhourpup.bsky.social) and manlytears89 (@manlytears89.bsky.social) follow open zoophiles.
 1. Purrsuit (@purrsuit.bsky.social) and ZootHoot (@mrrpmow.bsky.social) are open zoophiles.
 1. Valkyrie (@kawaiistarlight.online) is very likely another Sappho impersonator, even going so far as to link to a fake Sappho CuriousCat: (<https://bsky.app/profile/kawaiistarlight.online/post/3kdwdeggybk2i>). _(See our entry on Hypnotist Sappho for our stance on Sappho impersonators.)_ They're also currently following zoophiles.
 1. HuskyFortune (@huskyfortune.bsky.social) follows open zoophiles.
