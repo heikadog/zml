@@ -219,7 +219,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kantra (@yeenbutter.bsky.social) follows open zoophiles.
 1. Mith Cray (@mithcray.bsky.social), Fat Zeta Dog (@furrysecret.bsky.social), and werebie (@werebie.bsky.social) are open zoophiles.
 1. Skipper (@skippy482.bsky.social) is an open zoophile. Their Twitter has been deactivated, but an archive from 2022 has the zeta in their display name: (<https://archive.today/CkFgN>).
-1. carcrunch (@carcrunch.bsky.social), Ashy (@ashynecro.bsky.social), Gussy (@colssi.bsky.social), potentialcutie (@potentialcutie.bsky.social), and puppy (@heckh0und.bsky.social) follow open zoophiles.
+1. Ashy (@ashynecro.bsky.social) and Gussy (@colssi.bsky.social) follow open zoophiles.
 1. filthy (@fillthymutt.bsky.social) is an open zoophile.
 1. Sparkz (@sparkzvultrix.bsky.social) follows open zoophiles.
 1. riley (@rileywoof.bsky.social) and CreamAnimal (@nutsluttydog.bsky.social) are open zoophiles.
@@ -359,7 +359,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kroobs/Rey/W0LFSIN (@kr00bs.bsky.social/@reyw0lf.bsky.social/@w0lfsin.bsky.social) has gone on record to say zoophiles and pedophiles "deserve community:" (<https://archive.today/QKRgj>).
 1. Paradox The Opossum (@stupidopossum.bsky.social), loki (@spoonfulofsuga.bsky.social), Dog (@noteverypony.bsky.social), DirtyDog (@dirtydog183.bsky.social), and kristofer sataniko (@karuqow.bsky.social) are open zoophiles.
 1. Alton (@altonfer.bsky.social), knottybitch (@knottybitch.bsky.social), Nyxthepuppygirl (@nyxthepuppygirl.bsky.social), Pupidae (@pupidae.bsky.social), and Zeki (@snzr.bsky.social) are open zoophiles.
-1. Shugunou (@shugunou.bsky.social/@shugunounsfw.bsky.social) follows open zoophiles.
 1. Zenna (@antiz0o.bsky.social), Zahovar (@justazoopuppy.bsky.social), ZNA (@zetanorthamerica.bsky.social), Feral Fawner (@fawningoverferals.bsky.social), KnottedBraix (@knottedbraixen.bsky.social), and Brian the folf (@brianfolf.bsky.social) are open zoophiles.
 1. Bäranarchie (@baeranarchie.bsky.social), honey (@lvrkingz.bsky.social), Newt (@comship.bsky.social), and Zooey Vulpix (@vye-z.bsky.social) are open zoophiles.
 1. felixx (@stonerpupp.bsky.social) and Gyzmo (@gyzmozoo.bsky.social) are open zoophiles.
