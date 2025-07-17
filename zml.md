@@ -303,7 +303,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Logan (@ashesoflogan.bsky.social) and Malique (@malique88.bsky.social) are open zoophiles.
 1. Valais/Fwucky (@valais.bsky.social/@fwucky.art/@baaboyz.bsky.social) is an open zoophile, according to a Fediverse instance: (<https://archive.today/uB2EG>). He posted that "it's strange to me when furries decry zoophilia[...] that's all what furry has always been:" (<https://archive.today/hbcPG>).
 1. Emberlynns (@emberlynns.bsky.social), Auroran Zeta (@pastelzetafox.bsky.social), yeti (@yetitheperv.bsky.social), HornyBoi (@somehornyfur.bsky.social), ManuMare (@manumare.bsky.social), Rinko (@rinko-horsey.bsky.social), and Ravel (@noxxthesuccubus.bsky.social) are open zoophiles.
-1. Windswept Canopies (@windsweptcanopies.bsky.social), draconicnmamateur (@draconicmamateur.bsky.social), and Gylan (@gylan.bsky.social) follow open zoophiles.
+1. Windswept Canopies (@windsweptcanopies.bsky.social), and draconicnmamateur (@draconicmamateur.bsky.social) follow open zoophiles.
 1. Pferdefreund (@pferd.bsky.social), SomeoneOwO (@meowser1.bsky.social), Loba Vermelha (@goennering.bsky.social), Kitsune (@kitsune27.bsky.social), Olive (@fantasyturigirl.bsky.social), Carodenius (@carodenius.bsky.social), Taco (@1-taco-1.bsky.social), lucas (@changooneer.bsky.social), and AeroDaWolf (@chonchob.bsky.social) are open zoophiles.
 1. Muffins Horny (@muffinshorny.bsky.social) is an open zoophile: (<https://archive.today/ZeSEl>).
 1. AnnieGal (@anniegalla.bsky.social/@anniegaiia.bsky.social) follows open zoophiles.
