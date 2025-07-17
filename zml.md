@@ -327,7 +327,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. sofia (@sofia454a0.bsky.social) and coyoteboybark (@coyoteboybark.bsky.social) follow open zoophiles.
 1. WasHere098 (@washere098.bsky.social) is an open zoophile: (<https://archive.today/IjykK>).
 1. popcoals (@popcoals.bsky.social) is an open zoophile. They asked for a "zoophile hypnosis GIF," referring to people who are against zoophilia as "antis:" (<https://archive.today/mdEmm>).
-1. drew (@deadpuppygirl.bsky.social), Perv Julie (@julieisaperv.bsky.social), MilkBark (@milkbark.bsky.social), and KB (@kilobitten.bsky.social) follow open zoophiles.
+1. MilkBark (@milkbark.bsky.social) follows open zoophiles.
 1. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
 1. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
 1. sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), DOGBOY (@shinyespeon.bsky.social), and sillylittlegoober (@sillylittlegoober.bsky.social) follow open zoophiles.
