@@ -330,7 +330,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. MilkBark (@milkbark.bsky.social) follows open zoophiles.
 1. stak (@stak666.bsky.social) is an open zoophile, according to their Carrd: (<https://archive.today/s1xC2>).
 1. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
-1. sillyboyo123 (@sillyboyo123.bsky.social), AdvanWolv (@advanwolv.bsky.social), DOGBOY (@shinyespeon.bsky.social), and sillylittlegoober (@sillylittlegoober.bsky.social) follow open zoophiles.
+1. AdvanWolv (@advanwolv.bsky.social) follows open zoophiles.
 1. Sebastian (@pua.bsky.social), dawgdaddy (@dawgdaddy.bsky.social), John Ono Lemon (@doublefantasyqueer.bsky.social), Mutt_c4kes (@spr1nklemutt.bsky.social), Deer (Corpse) (@deercorpse.bsky.social), Clover (@cloverblower.bsky.social), and dog kisser (@arfowo.bsky.social) are open zoophiles.
 1. Luna (@zetaluna.bsky.social), Yage (@yage11.bsky.social), fern (@lakeofsins.bsky.social), Dumb Dog (@dum-d0g.bsky.social), Ruin Seeker (@errisessel.bsky.social), ZuuBoy2k (@zuuboy2k.bsky.social), Lykon (@lykon.bsky.social), and Shiv (@shiv950.bsky.social) are open zoophiles.
 1. RachelTheFictionkin (@rachelgardner.bsky.social) is a zoophile, according to her own admission: (<https://archive.today/d3xZw>).
