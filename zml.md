@@ -225,7 +225,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. riley (@rileywoof.bsky.social) and CreamAnimal (@nutsluttydog.bsky.social) are open zoophiles.
 1. nyko (@nykowo.bsky.social), Dogsoulmate (@dogsoulmate.bsky.social), Ember (@sanct.bsky.social), Summutt (@zoosonastralplanes.bsky.social), IcySnowBear (@icysnowmutt.bsky.social), and Lokii (@lokiigalm.bsky.social) are open zoophiles.
 1. ZooeyRaven (@zoeeyraven.bsky.social), Oui (@zeamelia.bsky.social), Harley The Great (@harleythegreat.bsky.social), malice (@zooeyfreeform.bsky.social), Atlas (@atlasbubble.bsky.social), Novie dog (@stonedshibaa.bsky.social), Junior22 (@junior22.bsky.social), and Lovebug (@lovebugplayz.bsky.social), and Skydog (@skyk9.bsky.social) are open zoophiles.
-1. GetRaccd (@raccooneggs.bsky.social) follows open zoophiles.
 1. Ashe FoxD (@ashefoxd.bsky.social) is dating Thera, an open zoophile.
 1. dogoflife (@dogoflife.bsky.social), k969 (@k969.bsky.social), Zoomy Cat (@zoomycat.bsky.social), high4lifedude (@high4lifedude.bsky.social), howler (@howlerzeta.bsky.social), and 0ffbrand (@0ffbrand.bsky.social) are open zoophiles.
 1. phiner (@phiner.bsky.social) and Kas (@boytiger.bsky.social) follow open zoophiles.
