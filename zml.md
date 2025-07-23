@@ -447,3 +447,4 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Riedn (@riedn.bsky.social) follows open zoophiles.
 1. Yokonovish (@yokonovish.bsky.social) is an open zoophile: (<https://archive.today/kBa1R>).
 1. koda (@ghuulishh.bsky.social) and Fluff Xing (@emokonekoyasha.bsky.social) are open zoophiles.
+1. Claws (@clawswork.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they moderate for a public Telegram group called Zoo Furs Unity, in which they admitted to being a zoophile in January 2025: (1: <https://archive.today/oruLI> / 2: <https://archive.today/ljvJD>).
