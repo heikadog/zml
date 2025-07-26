@@ -227,7 +227,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. twittersecks (@twittersecks.bsky.social) is an open zoophile: (<https://archive.today/NHptU>).
 1. Faerie (@a40j.bsky.social) is an open zoophile.
 1. Calypso (@arcticmoondust.bsky.social) is an open zoophile.
-1. Rot (@saberhorn.bsky.social) is an open zoophile.
+1. ROT (@74rn.bsky.social) is an open zoophile.
 1. Rehzi (@rehzi.bsky.social) is an open zoophile.
 1. Remy_Kobl (@remykobl.bsky.social) is an open zoophile.
 1. Dogtooth (@dogstooths.bsky.social) is an open zoophile.
