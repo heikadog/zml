@@ -227,7 +227,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. twittersecks (@twittersecks.bsky.social) is an open zoophile: (<https://archive.today/NHptU>).
 1. Faerie (@a40j.bsky.social) is an open zoophile.
 1. Calypso (@arcticmoondust.bsky.social) is an open zoophile.
-1. ROT (@r0t.bsky.social/@74rn.bsky.social) is an open zoophile.
+1. Rot (@saberhorn.bsky.social) is an open zoophile.
 1. Rehzi (@rehzi.bsky.social) is an open zoophile.
 1. Remy_Kobl (@remykobl.bsky.social) is an open zoophile.
 1. Dogtooth (@dogstooths.bsky.social) is an open zoophile.
@@ -466,7 +466,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zoo pup (@zoopupuk.bsky.social) is an open zoophile.
 1. PissySatin (@pissysatin.bsky.social) is an open zoophile.
 1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
-1. evyn (@rawrqueer.bsky.social/@bath-toys.bsky.social) is an open zoophile.
+1. evyn (@lolichu666.bsky.social) is an open zoophile.
 1. lowlyhollow (@bruhskater.bsky.social) is an open zoophile.
 1. localknottypup (@localknottypup.bsky.social) is an open zoophile.
 1. Anziris (@anziris.bsky.social) is an open zoophile.
