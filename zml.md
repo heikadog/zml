@@ -577,7 +577,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Yen (@anarchopuppygirl.bsky.social) follows several open zoophiles.
 1. lucifer6668 (@lucifer6668.bsky.social) follows several open zoophiles.
 1. Unuyo (@nuyo.bsky.social) follows several open zoophiles.
-1. Jamie J (@slightlyflightyone.bsky.social) follows and interacts with open zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>).
+1. Jamie J (@slightlyflightyone.bsky.social) has followed and interacted with open zoophiles. They've liked multiple posts from open zoophiles: (<https://archive.today/En7tX>).
 1. transfurperv (@transfurperv.bsky.social) follows several open zoophiles.
 1. Kibbie (@kibbieuwu.bsky.social) follows several open zoophiles.
 1. timggyest113 (@timggyest113.bsky.social) follows several open zoophiles.
