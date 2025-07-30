@@ -509,6 +509,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zer0 (@knottydreamer.bsky.social) is an open zoophile.
 1. Alex (@bskyalex1.bsky.social) is an open zoophile.
 1. eric3206 (@19eric96.bsky.social) is an open zoophile.
+1. Knotty (@knottyzoo.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
