@@ -510,6 +510,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. eric3206 (@19eric96.bsky.social) is an open zoophile.
 1. Knotty (@knottyzoo.bsky.social) is an open zoophile.
 1. Scribble (@scribblewasp.bsky.social) is an open zoophile.
+1. Fembo1 (@femoisfw.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
