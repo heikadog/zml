@@ -511,6 +511,11 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Knotty (@knottyzoo.bsky.social) is an open zoophile.
 1. Scribble (@scribblewasp.bsky.social) is an open zoophile.
 1. Fembo1 (@femoisfw.bsky.social) is an open zoophile.
+1. Puppy (@cutestkitty.bsky.social) is an open zoophile.
+1. cielbayne (@cielbayne.bsky.social) is an open zoophile.
+1. pandifference (@pandifference.bsky.social) is an open zoophile.
+1. Donut kisser (@zeta-donutlover.bsky.social) is an open zoophile.
+1. Smith Haklyut (@smithhaklyut.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
