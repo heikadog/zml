@@ -78,7 +78,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kane (@canidliker.bsky.social) is an open zoophile.
 1. Rox (@roxanathewolf.bsky.social) is an open zoophile.
 1. Maple (@maplebark.bsky.social) is an open zoophile.
-1. Murphy (@bitchmurph.bsky.social/@mapleden.bsky.social) is an open zoophile.
+1. Murphy (@bitchmurph.bsky.social) is an open zoophile.
 1. Putter (@puppyputter.bsky.social) is an open zoophile.
 1. Marshall (@marshallthehusky.bsky.social) is an open zoophile.
 1. RikoTheUmbreon (@rikotheumbreon.bsky.social) is an open zoophile.
