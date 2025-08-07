@@ -517,7 +517,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Smith Haklyut (@smithhaklyut.bsky.social) is an open zoophile.
 1. mason (@masonlovesdogs.bsky.social) is an open zoophile.
 1. theshypuppy45 (@theshypuppy45.bsky.social) is an open zoophile.
-1. Seraphius (@batpuppie.bsky.social) is an open zoophile.
+1. Seraphius (@feralboycunt.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
