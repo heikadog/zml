@@ -467,7 +467,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
 1. evyn (@lolichu666.bsky.social) is an open zoophile.
 1. lowlyhollow (@bruhskater.bsky.social) is an open zoophile.
-1. localknottypup (@localknottypup.bsky.social) is an open zoophile.
 1. Anziris (@anziris.bsky.social) is an open zoophile.
 1. kaiman98 (@kaiman98.bsky.social) is an open zoophile.
 1. zetalef (@zetalef.bsky.social) is an open zoophile.
@@ -517,7 +516,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Smith Haklyut (@smithhaklyut.bsky.social) is an open zoophile.
 1. mason (@masonlovesdogs.bsky.social) is an open zoophile.
 1. theshypuppy45 (@theshypuppy45.bsky.social) is an open zoophile.
-1. Seraphius (@feralboycunt.bsky.social) is an open zoophile.
+1. Seraphius (@feralboycunt.bsky.social/@localknottypup.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
