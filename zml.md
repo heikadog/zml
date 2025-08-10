@@ -782,6 +782,10 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 ### Hidden
 
 > [!NOTE]
-> This section includes accounts Laelaps has hidden for its users. Because it entirely blocks accounts, we rarely use it unless we find an account harmful to the network or our users and the account hasn't been actioned on by Bluesky themselves.
+> This section includes accounts Laelaps has hidden for its users. As an additional measure, we don't include handles in this section to further prevent a network effect.
+>
+> Because this measure entirely blocks accounts, we rarely use it unless we find an account harmful to the network or our users and the account hasn't been suspended by Bluesky themselves.
+>
+> When you visit profiles described here while using Laelaps, you'll see a screen preventing you from accessing the account. If you wish to block them, these accounts also appear on our associated moderation lists.
 
 1. Furry Valley, a group run by a notorious zoosadist, created a Bluesky account modeled after "The Furry Detectives," a docuseries about the 2018 zoosadism leaks. This account has nothing to do with the series and intends to mislead people into joining Furry Valley. We've hidden it for Laelaps users. _[See our entry on Simba.]_
