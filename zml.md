@@ -782,7 +782,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 ### Hidden
 
 > [!NOTE]
-> This section includes accounts Laelaps has hidden for its users. As an additional measure, we don't include handles in this section to further prevent a network effect.
+> This section includes accounts Laelaps has hidden for its users. As an additional measure, we don't include handles in this section to further prevent them from gaining traction.
 >
 > Because this measure entirely blocks accounts, we rarely use it unless we find an account harmful to the network or our users and the account hasn't been suspended by Bluesky themselves.
 >
