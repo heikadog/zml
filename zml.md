@@ -517,6 +517,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Seraphius (@localknottypup.bsky.social) is an open zoophile.
 1. Kristal Meth (@methanywhore.bsky.social) is an open zoophile.
 1. kara (@projektbashboard.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter account links back to this account: (<https://archive.today/hG7Ki>).
+1. Brock (@bruhguy.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
