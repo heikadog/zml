@@ -135,7 +135,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. c0smicprotogen (@c0smicprotogen.bsky.social) is an open zoophile.
 1. Thera (@thera.pw/@thera666.bsky.social/@therah.bsky.social) is an open zoophile. On November 8th, 2023, she posted feral NSFW art of Heika's fursona made to look like a zoophile as a "thanks" for creating the Zoophile Mute List, which is sexual harassment: (<https://archive.today/0YoYQ>). She also alleged that Heika was a "closeted bestialist" because they use IRL pictures of huskies to represent themselves online: (<https://archive.today/U4lnn>). And in response to Heika saying she shouldn't use her trauma to say "furries _are_ zoophiles," and, if anything, that's why zoophiles are dangerous, she sent Heika Telegram messages where she said Heika was "targeting" her, when she harassed them for listing her: (<https://archive.today/uDD4F>). _[Thera's Bluesky accounts have since been deleted, but we've decided to keep this entry in the document since this context is important to events related to the mute list and Laelaps.]_
 1. Majin The Panth (@majinpanther.bsky.social) is an open zoophile.
-1. CalonFox (@calonfox.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they've referred to zoophiles a colloquial "we" on Twitter: (<https://archive.today/JAIux>), and they follow open zoophiles.
+1. CalonFox (@calonfox.bsky.social) is an open zoophile. While they don't say it on Bluesky, they've referred to zoophiles a colloquial "we" on Twitter: (<https://archive.today/JAIux>), and they follow open zoophiles.
 1. Enu (@enulxaw.bsky.social) is an open zoophile.
 1. Kairo (@kairokitten.bsky.social) is an open zoophile.
 1. Cloud fox (@cloudfox12.bsky.social) is an open zoophile.
@@ -215,7 +215,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dragon (@dragonpath.bsky.social) is an open zoophile.
 1. dylan (@dylanthefemzoo.bsky.social) is an open zoophile.
 1. Sigma (@sigmathezeta.bsky.social) is an open zoophile.
-1. Paul (@webboy42.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as a "zoosexual" on Twitter: (<https://archive.today/jQru6>), and they follow open zoophiles.
+1. Paul (@webboy42.bsky.social) is an open zoophile. While they don't say it on Bluesky, they identify as a "zoosexual" on Twitter: (<https://archive.today/jQru6>), and they follow open zoophiles.
 1. Castron (@castronexs.bsky.social) is an open zoophile.
 1. Sebastian (@puppylove13.bsky.social) is an open zoophile.
 1. Lord Altair (@sporealtair.bsky.social) is an open zoophile.
@@ -400,7 +400,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Tedious Dullard (@tediousdullard.bsky.social) is an open zoophile.
 1. Zoo and Me (@zooand.me) is a zoophilic podcast.
 1. Vegas (@yagab0nd.bsky.social) is an open zoophile.
-1. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
+1. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. While they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
 1. Kumori (@kumottatenki.bsky.social) is an open zoophile.
 1. Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social) is an open zoophile.
 1. Ri-Ri/Akechi/Den (@risley1circus.bsky.social) is an open zoophile.
@@ -499,7 +499,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Legolas the Maned Wolf (@legolaslupus.bsky.social) is an open zoophile.
 1. Yokonovish (@yokonovish.bsky.social) is an open zoophile.
 1. Fluff Xing (@emokonekoyasha.bsky.social) is an open zoophile.
-1. Claws (@clawswork.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they moderate for a public Telegram group called Zoo Furs Unity, in which they admitted to being a zoophile in January 2025: (1: <https://archive.today/oruLI> / 2: <https://archive.today/ljvJD>).
+1. Claws (@clawswork.bsky.social) is an open zoophile. While they don't say it on Bluesky, they moderate for a public Telegram group called Zoo Furs Unity, in which they admitted to being a zoophile in January 2025: (1: <https://archive.today/oruLI> / 2: <https://archive.today/ljvJD>).
 1. Dreamer_Puppy (@dreamerpuppy.bsky.social) is an open zoophile.
 1. latte (@sunlattei.bsky.social) is an open zoophile.
 1. Alex (@bskyalex1.bsky.social) is an open zoophile.
