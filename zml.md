@@ -657,6 +657,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Alec74 (@alec74.bsky.social) follows several open zoophiles.
 1. Rabid Fox Arts (@rabidfoxarts.bsky.social/@foxvomit.bsky.social) interacts with zoophiles. It made art with an open zoophile, Soren, (<https://archive.today/j2JIT>) and follows several open zoophiles.
 1. Riedn (@riedn.bsky.social) follows several open zoophiles.
+1. pubbycreature (@pubbycreature.bsky.social) follows several open zoophiles.
 
 ### Zoophile Supporter
 
