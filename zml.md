@@ -55,7 +55,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 ### Open Zoophile
 
 1. Soren (@feral4feral.art) is an open zoophile.
-1. Huskeee (@huskeee.bsky.social) is an open zoophile.
 1. ZoobyDoobyDoo (@zoobydoobydoo.bsky.social) is an open zoophile.
 1. Akito (@akito.zooand.me) hosts a zoophilic podcast and is an open zoophile: (<https://archive.today/FFb0z>).
 1. Vex (@koolkanine.zooand.me) is an open zoophile.
