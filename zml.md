@@ -518,6 +518,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kristal Meth (@methanywhore.bsky.social) is an open zoophile.
 1. kara (@projektbashboard.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter account links back to this account: (<https://archive.today/hG7Ki>).
 1. Brock (@bruhguy.bsky.social) is an open zoophile.
+1. SpotzDottz (@spotzdottz.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
@@ -631,7 +632,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dent (@divinedogteeth.bsky.social) follows several open zoophiles.
 1. Thixledown (@thixledown.bsky.social) follows several open zoophiles.
 1. Zekiel (@kezeli.bsky.social) follows several open zoophiles.
-1. SpotzDottz (@spotzdottz.bsky.social) follows several open zoophiles.
 1. Zemen (@z-men.bsky.social) follows several open zoophiles.
 1. Fenrir (@femrir.bsky.social) follows several open zoophiles.
 1. the-ghost-fucker (@the-ghost-fucker.bsky.social) follows several open zoophiles.
