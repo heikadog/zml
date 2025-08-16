@@ -426,7 +426,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Cookie Cat (@coookiecat.bsky.social) is an open zoophile.
 1. knottedbitch (@knottedbitch.bsky.social) is an open zoophile.
 1. Skunny Skunk (@umbreavera.bsky.social) is an open zoophile.
-1. Narugit (@narugit.bsky.social) is an open zoophile.
 1. HAZard (@bio-haz.bsky.social) is an open zoophile.
 1. Otti (@zottidoggyboyz.bsky.social) is an open zoophile.
 1. Fur Gooner (@furgooner.bsky.social) is an open zoophile.
