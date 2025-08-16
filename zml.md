@@ -423,7 +423,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Rut in Mutt Butt (@muttrutt.bsky.social) is an open zoophile.
 1. FluffyWuffyTuffy (@fluffywuffytuffy.bsky.social) is an open zoophile.
 1. Oli (@oliiscool78.bsky.social) is an open zoophile. The background of their profile picture has the zoophile flag.
-1. Cookie Cat (@coookiecat.bsky.social) is an open zoophile.
 1. knottedbitch (@knottedbitch.bsky.social) is an open zoophile.
 1. Skunny Skunk (@umbreavera.bsky.social) is an open zoophile.
 1. HAZard (@bio-haz.bsky.social) is an open zoophile.
