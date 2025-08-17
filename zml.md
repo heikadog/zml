@@ -516,6 +516,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. SpotzDottz (@spotzdottz.bsky.social) is an open zoophile.
 1. Strifecaster (@strifecaster.bsky.social) is an open zoophile. While they don't say it on Bluesky, they're active in a public Telegram group called Zoo Furs Unity, in which they admitted to being a zoophile but edited the message to obscure it from us: (<https://archive.today/8xvli>).
 1. Phoxinus (@phoxinus.bsky.social) is an open zoophile.
+1. Naafiri Love (@naafiri-love.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
