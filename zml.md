@@ -472,7 +472,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. ZoeyPaws (@zoeypaws.bsky.social) is an open zoophile.
 1. Alice (@gunther12.bsky.social) is an open zoophile.
 1. Berlin (@arfarfarfer.bsky.social) is an open zoophile.
-1. Kxltz (@gooddoggienobone.bsky.social) is an open zoophile.
 1. CookieEnjoyer (@madwillow.bsky.social) is an open zoophile.
 1. Canidae (@caninecompanion420.bsky.social) is an open zoophile.
 1. FFauna (@ffaunaz.bsky.social) is an open zoophile.
