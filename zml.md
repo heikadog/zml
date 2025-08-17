@@ -392,7 +392,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. smokindogdick (@smokindogdick.bsky.social) is an open zoophile.
 1. Gaban Lock (@gabanlock.bsky.social) is an open zoophile.
 1. Ghoul (@s1ghthound.bsky.social) is an open zoophile.
-1. kinkygay68 (@kinkygay68.bsky.social) is an open zoophile.
 1. HerdUtility (@herdz.bsky.social) is an open zoophile.
 1. PawkyPaws (@pawkypaw.bsky.social) is an open zoophile.
 1. Cowboi69 (@cwbi6.bsky.social) is an open zoophile. They referred to zoophiles as a "minority community:" (<https://archive.today/oOabA>), and posted on multiple zoophilic online forums under the same username, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret:" (<https://archive.today/URSpE>).
