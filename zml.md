@@ -518,7 +518,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Naafiri Love (@naafiri-love.bsky.social) is an open zoophile.
 1. AutiZoom (@autiszoom.bsky.social) is an open zoophile.
 1. wolp (@justanotherwolp.bsky.social) is an open zoophile.
-1. Narugit (@narugit.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
