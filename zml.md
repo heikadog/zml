@@ -699,6 +699,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. grey (@hydroblade.bsky.social) expressed support for zoophiles: (<https://archive.today/fVDyw>).
 1. Love the Dragon (@lovethedog.bsky.social) said zoophilia is "gravely misunderstood:" (<https://archive.today/WGPNI>).
 1. Marisa (@marisavanima.bsky.social) supports zoophiles, writing "Zoo pride!" under a zoophile's post: (<https://archive.today/91EJO>), and replying to other zoophiles: (1: <https://archive.today/0DGLc> / 2: <https://archive.today/fitQ6> / 3: <https://archive.today/AvX5w>).
+1. "KeroTheWolf - Supporter" (@kerodefender.bsky.social) is an account made for the express purpose of defending Kero The Wolf.
 
 ### Outed Zoophile
 
