@@ -490,7 +490,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. krcon (@krcon.bsky.social) admitted to being a zoophile in a FurAffinity journal: (<https://archive.today/V96UX>).
 1. Melcifer (@melciferrr.bsky.social) is an open zoophile.
 1. Bailey Shep (@brattymawz.bsky.social) is an open zoophile.
-1. somthinzooey (@somthinzooey.bsky.social/@somethinzooey.bsky.social) is an open zoophile.
+1. somthinzooey (@somthinzooey.bsky.social) is an open zoophile.
 1. Ashley Kltti (@ashley6924.bsky.social) is an open zoophile.
 1. Legolas the Maned Wolf (@legolaslupus.bsky.social) is an open zoophile.
 1. Yokonovish (@yokonovish.bsky.social) is an open zoophile.
