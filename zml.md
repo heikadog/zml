@@ -519,6 +519,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. wolp (@justanotherwolp.bsky.social) is an open zoophile.
 1. Marina Monkman (@pinkpawpuppy.bsky.social) is an open zoophile.
 1. Havoc (@scp-313.bsky.social) is an open zoophile.
+1. Carandae (@carandae.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
