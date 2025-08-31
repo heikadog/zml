@@ -109,7 +109,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Wes Wylde (@weswylde.bsky.social) is an open zoophile.
 1. Purple Guy (@purpleguy1.bsky.social) is an open zoophile.
 1. rogue07187727 (@rogue07187727.bsky.social) is an open zoophile.
-1. Stallion (@shirestallion.bsky.social) is an open zoophile.
 1. Alex (@zratedpup.bsky.social) is an open zoophile.
 1. DeeneTheBear (@deenethebear.bsky.social) is an open zoophile.
 1. Mead the Circus Bear/El Oso Meloso (@meadhoneygrizzly.bsky.social) is an open zoophile.
