@@ -65,7 +65,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. DotaWolf (@dotawolf.bsky.social) is an open zoophile.
 1. Kyon Canid (@kyoncanid.bsky.social) is an open zoophile.
 1. Blethyn (@blethyn.bsky.social) is an open zoophile.
-1. Troia Delfino (@troiadelfino.bsky.social) is an open zoophile.
 1. XZoyen37 (@xzoyen37.bsky.social) is an open zoophile.
 1. PossBeans (@possbeans.bsky.social) is an open zoophile.
 1. Valkyrie (@jackalzoogirl.bsky.social) is an open zoophile.
