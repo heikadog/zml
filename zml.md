@@ -252,7 +252,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. goober (@spicedcum.bsky.social) is an open zoophile.
 1. Fisa (@fisafis.bsky.social) is an open zoophile.
 1. Gay ass birb (@calliethecorvid.bsky.social) is an open zoophile.
-1. floofinfoxzet (@floofinfoxzet.bsky.social) is an open zoophile.
 1. Dog Dad (@dogdad99.bsky.social) is an open zoophile.
 1. Shiro (@shirocollie.bsky.social) is an open zoophile.
 1. FeralWolf (@juicyspades.bsky.social) is an open zoophile.
