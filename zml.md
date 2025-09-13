@@ -732,11 +732,12 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Quentin Coyote (@quentincoyote.packmates.org.ap.brid.gy)'s evidence can be viewed here: (<https://archive.today/MG9do>). In particular, he was seen with a tattoo of a Greek zeta, a zoophilic dogwhistle, and made several statements in support of zoophiles, comparing zoophilia to the plight of LGBTQ+ people: (<https://archive.today/gM7Ul>).
 1. mars (@pupbrained.dev/@mardpupbrained.bsky.social) was outed as a zoophile in January of 2025: (<https://ghostarchive.org/archive/ZY6aa>). Notably, they followed zoophiles on a private Twitter account: (<https://archive.today/VzLF7>). At one point, they said that "ZooeyDonk has some really good shit," referring to a now-defunct Twitter account which posted animal genitalia: (<https://archive.today/MC1rR>).
 1. Valmir (@valmirhorse.bsky.social) was outed as a zoophile. He had an account on a now-defunct bestiality forum where he shared explicit bestiality content of horses under the username "jazyjason" in 2011, which we've verified to be him through other archived social media accounts also listing themselves as being in the same location and showing photos of the same person: _[No explicit bestiality content is in this link.]_ (<https://archive.today/bJkug>). He put up a forum post under the Valmir pseudonym in 2016 claiming to need a horse for therapy: (<https://archive.today/n6rg6>). Additionally, as of 2018, his Xtube profile listed "Equines" as a turn-on: (<https://archive.today/oR8Gx>).
+1. Htess (@htess.bsky.social) was outed as a zoophile. In September 2016, he was arrested on animal cruelty charges for raping a horse, and banned from owning horses for life: (<https://archive.today/vs1Mn>). In addition, he admitted to this in a Telegram chat: (<https://archive.today/kTcLf>).
 
 ### Incidents
 
 > [!NOTE]
-> This section covers major incidents related to evidence in this document, involving multiple accounts spanning multiple labels.
+> This section covers major incidents related to evidence in this document, involving multiple accounts and spanning multiple labels.
 
 #### Zoosadism Leaks
 
