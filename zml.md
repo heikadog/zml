@@ -538,7 +538,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. void (@puppyvoid.bsky.social) follows several open zoophiles.
 1. JenklinDog (@jenklindog.bsky.social) follows several open zoophiles.
 1. Lev (@levthsa.bsky.social) follows several open zoophiles.
-1. Apollo (@apolloshibe.feral.army) follows known zoophiles. Additionally, in 2023, he had a conversation with an open zoophile on Twitter: (<https://archive.today/cPYCp>). _[We'd like to note that the zoophile's half of the conversation was never archived and has since been lost to time, but we've archived Apollo's half of the conversation in addition to providing a screenshot taken a day after the original exchange.]_ Archives of Apollo's half of the conversation: (1: <https://archive.today/JAgUE> / 2: <https://archive.today/jvJDj> / 3: <https://archive.today/zsnR4>).
+1. Apollo (@apolloshibe.feral.army/@puppypussy.bsky.social) follows known zoophiles. Additionally, in 2023, he had a conversation with an open zoophile on Twitter: (<https://archive.today/cPYCp>). _[We'd like to note that the zoophile's half of the conversation was never archived and has since been lost to time, but we've archived Apollo's half of the conversation in addition to providing a screenshot taken a day after the original exchange.]_ Archives of Apollo's half of the conversation: (1: <https://archive.today/JAgUE> / 2: <https://archive.today/jvJDj> / 3: <https://archive.today/zsnR4>).
 1. Anarcho-Mutt (@anarcho-mutt.bsky.social) only follows and is mutuals with an open zoophile.
 1. Brave Moya (@bravemoya.bsky.social) follows several open zoophiles.
 1. madhuaka (@madhuaka.bsky.social) follows several open zoophiles.
@@ -546,19 +546,15 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. fawnly (@fawnly.bsky.social) follows several open zoophiles.
 1. Subwoofer (@subwoofuhr.bsky.social) follows several open zoophiles.
 1. GayGrayCat (@gayyellowcat.bsky.social) follows several open zoophiles.
-1. c2ash_0v3rride (@phant0mphreak.bsky.social) follows several open zoophiles.
-1. U the Striped Coyote (@uthecoyote.bsky.social) follows a large amount of open zoophiles.
 1. Peek (@takeapeekandsee.bsky.social) follows several open zoophiles.
-1. DivingDolphin (@divingdolphin.bsky.social) follows several open zoophiles.
 1. Tann (@tannerite.bsky.social) follows several open zoophiles.
 1. Ryker (@paws-and-tail.bsky.social) follows several open zoophiles.
 1. bestiality (@bestiality.bsky.social) follows several open zoophiles.
 1. ChastityBear (@chastitybear.bsky.social) follows several open zoophiles.
 1. Somr (@somersaet.bsky.social) follows several open zoophiles.
 1. flareup (@flareup.bsky.social) follows several open zoophiles.
-1. Curious Yeen (@curiousyeen.bsky.social) follows several open zoophiles.
 1. Cooro (@coororaccoon.bsky.social) follows several open zoophiles.
-1. Dr. Solaris Yigson (@solarisyigson.bsky.social) follows several open zoophiles.
+1. Korodonius (@solarisyigson.bsky.social) follows several open zoophiles.
 1. pisps (@pisps.bsky.social) follows several open zoophiles.
 1. dogknot (@dogknot.bsky.social) follows several open zoophiles.
 1. Lex the Fox (@alexisvulpes.bsky.social) follows several open zoophiles.
@@ -576,10 +572,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kantra (@yeenbutter.bsky.social) follows several open zoophiles.
 1. Ashy (@ashynecro.bsky.social) follows several open zoophiles.
 1. Gussy (@colssi.bsky.social) follows several open zoophiles.
-1. Sparkz (@sparkzvultrix.bsky.social) follows several open zoophiles.
 1. phiner (@phiner.bsky.social) follows several open zoophiles.
 1. Kas (@boytiger.bsky.social) follows several open zoophiles.
-1. regg00 (@regg00.bsky.social) follows several open zoophiles.
 1. Mango (@mangoking.bsky.social) follows several open zoophiles.
 1. wlightning245 (@wlightning245.bsky.social) follows several open zoophiles.
 1. hothorses (@hothorses.bsky.social) follows several open zoophiles.
@@ -637,7 +631,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Fenrir (@femrir.bsky.social) follows several open zoophiles.
 1. the-ghost-fucker (@the-ghost-fucker.bsky.social) follows several open zoophiles.
 1. Rune (@feralmarsupial.bsky.social) follows several open zoophiles.
-1. Doggydeer (@doggydeer.bsky.social) follows several open zoophiles.
 1. jodrago (@jodrago.bsky.social) follows several open zoophiles.
 1. aussieshepherd (@aussieshepherd.bsky.social) follows several open zoophiles.
 1. Vi (@vi-nightingale.bsky.social) follows several open zoophiles.
