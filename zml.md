@@ -520,6 +520,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Carandae (@carandae.bsky.social) is an open zoophile.
 1. Foozoo (@foozoofur.bsky.social) is an open zoophile.
 1. Kyren (@standard-zoodle.bsky.social) is an open zoophile.
+1. cat_online (@cat-0nline.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
