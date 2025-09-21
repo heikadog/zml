@@ -216,7 +216,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Paul (@webboy42.bsky.social) is an open zoophile. While they don't say it on Bluesky, they identify as a "zoosexual" on Twitter: (<https://archive.today/jQru6>), and they follow open zoophiles.
 1. Castron (@castronexs.bsky.social) is an open zoophile.
 1. Sebastian (@puppylove13.bsky.social) is an open zoophile.
-1. Lord Altair (@sporealtair.bsky.social) is an open zoophile.
+1. Altair (@sporealtair.bsky.social) is an open zoophile.
 1. knottyk (@knottyk.bsky.social) is an open zoophile.
 1. Lila (@lila6464.bsky.social) is an open zoophile.
 1. echo (@pupslut.bsky.social) is an open zoophile.
