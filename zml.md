@@ -330,7 +330,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dumb Dog (@dum-d0g.bsky.social) is an open zoophile.
 1. Ruin Seeker (@errisessel.bsky.social) is an open zoophile.
 1. ZuuBoy2k (@zuuboy2k.bsky.social) is an open zoophile.
-1. RachelTheFictionkin (@rachelgardner.bsky.social) is a zoophile, according to her own admission: (<https://archive.today/d3xZw>).
+1. RachelTheFictionkin (@rachelgardner.bsky.social) is an open zoophile.
 1. Shiv (@shiv950.bsky.social) is an open zoophile.
 1. Synesthesia (@synesthesiacoyote.bsky.social) is an open zoophile.
 1. Mud (@muttmud.bsky.social) is an open zoophile.
@@ -396,7 +396,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Tedious Dullard (@tediousdullard.bsky.social) is an open zoophile.
 1. Zoo and Me (@zooand.me) is a zoophilic podcast.
 1. Vegas (@yagab0nd.bsky.social) is an open zoophile.
-1. Roxy (@wolfdemongodess.bsky.social) is an open zoophile. While they don't say it on Bluesky, they identify as one on Twitter: (<https://archive.today/nkwBl>).
+1. Roxy (@wolfdemongodess.bsky.social) is an open zoophile.
 1. Kumori (@kumottatenki.bsky.social) is an open zoophile.
 1. Pebble (@pebbeanz.bsky.social/@pebbeanspam.bsky.social) is an open zoophile.
 1. Ri-Ri/Akechi/Den (@risley1circus.bsky.social) is an open zoophile.
@@ -522,6 +522,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. cat_online (@cat-0nline.bsky.social) is an open zoophile.
 1. Lone Abyss (@loneabyss.bsky.social) is an open zoophile.
 1. yuki (@andrewpaws.bsky.social) is an open zoophile.
+1. slipscale (@slipscale.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
