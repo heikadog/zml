@@ -295,7 +295,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. zetayeenboi (@zetayeenboi.bsky.social) is an open zoophile.
 1. Red Breebah (@redbreebah.bsky.social) is an open zoophile.
 1. ThatDustyDog (@tddog.bsky.social) is an open zoophile, but doesn't have the zeta in their Bluesky profile: (<https://archive.today/lSjsM>).
-1. Kharrs (@kharrs.bsky.social) is an open zoophile on multiple bestiality forums: (<https://archive.today/Vdw7e>).
+1. Kharrs (@kharrs.bsky.social) is an open zoophile on multiple zoophilic forums: (<https://archive.today/Vdw7e>).
 1. Cheski (@chezetaki.bsky.social) is an open zoophile.
 1. Nezuko (@nxzukokamado.bsky.social) is an open zoophile: (<https://archive.today/QRH7s>).
 1. Dew (@dewkitti.bsky.social) is an open zoophile.
