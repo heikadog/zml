@@ -523,6 +523,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lone Abyss (@loneabyss.bsky.social) is an open zoophile.
 1. yuki (@andrewpaws.bsky.social) is an open zoophile.
 1. slipscale (@slipscale.bsky.social) is an open zoophile.
+1. shosho (@jerkylover.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
