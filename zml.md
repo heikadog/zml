@@ -525,6 +525,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. slipscale (@slipscale.bsky.social) is an open zoophile.
 1. shosho (@jerkylover.bsky.social) is an open zoophile.
 1. luckybat (@luckyb4t.bsky.social) is an open zoophile.
+1. Zova (@sao-248770.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
