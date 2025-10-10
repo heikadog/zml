@@ -18,7 +18,7 @@
 The Laelaps labeller and its associated moderation lists for Bluesky (the Laelaps moderation lists and the Zoophile Mute List by heikadog) encompasses zoophiles and people who actively interact with or support them. This document with information and evidence is provided for transparency. View and subscribe to Laelaps: <https://laelaps.fyi>.
 
 - To report an account in-app to be labelled, follow these instructions: <https://laelaps.fyi/post/3ky4mvys7qkq3>.
-  - For more complex issues, you can submit accounts with evidence to be labelled, appeal a label, or submit feedback here: <https://zmlform.heika.dog>.
+  - For more complex issues, you can submit accounts with evidence to be labelled, appeal a label, or submit feedback here: <https://form.laelaps.fyi>.
 
 To mute or block the accounts on a Laelaps moderation list, select one of the links below and select "Subscribe" at the upper-right corner of the list page. When you subscribe to the list, accounts on the list will have a disclaimer below their profile that says they're muted or blocked by the list. To share the list in question, select the arrow to the right of the Subscribe button.
 
