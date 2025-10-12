@@ -533,7 +533,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Kasper (@kasperkitten.bsky.social) follows several open zoophiles.
 1. Tizzy Sabercat (@pride-riot-saber.bsky.social) follows several open zoophiles.
 1. Aspen (@cryptidcanine.bsky.social) follows open zoophiles and has previously identified as an open zoophile.
-1. Vulan Washburne (@vulan.bsky.social) is Glowfox's boyfriend: (<https://archive.today/XXZnd>), follows zoophiles on Twitter: (<https://imgur.com/a/PQBvIkE>), and also interacts with BirtyFur: (<https://imgur.com/a/U3E0cmd>).
 1. Knottypuppywulf (@knottypuppywulf.bsky.social) follows several open zoophiles.
 1. Koberante Rosenblueth (@kobold951.feral.army) follows several open zoophiles.
 1. bear (@davidbear.bsky.social) follows several open zoophiles.
