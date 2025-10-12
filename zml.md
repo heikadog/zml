@@ -54,7 +54,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 
 ### Open Zoophile
 
-1. Soren (@feral4feral.art) is an open zoophile.
 1. ZoobyDoobyDoo (@zoobydoobydoo.bsky.social) is an open zoophile.
 1. Akito (@akito.zooand.me) hosts a zoophilic podcast and is an open zoophile.
 1. Vex (@koolkanine.zooand.me) is an open zoophile.
@@ -410,7 +409,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. lexiretriever (@lexiretriever.bsky.social) is an open zoophile.
 1. pollywolly (@pollywolly.bsky.social) is an open zoophile.
 1. Lynx (@zoopsies.bsky.social) is an open zoophile.
-1. titaniumgiest (@titaniumgiest.bsky.social) is an open zoophile. They replied to an open zoophile, Soren, about being in "the zoo community:" (<https://archive.today/aV5nU>).
+1. titaniumgiest (@titaniumgiest.bsky.social) is an open zoophile. They replied to Soren about being in "the zoo community:" (<https://archive.today/aV5nU>).
 1. Maxxy (@opossophile.bsky.social) is an open zoophile.
 1. Anya (@anyakitty.bsky.social) is an open zoophile.
 1. Husky Kisses (@huskykisses.bsky.social) is an open zoophile.
@@ -658,7 +657,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Theo Tiger (@theobrometiger.bsky.social) follows several open zoophiles.
 1. atpunz (@atpunz.bsky.social) follows several open zoophiles.
 1. Alec74 (@alec74.bsky.social) follows several open zoophiles.
-1. Rabid Fox Arts (@rabidfoxarts.bsky.social/@foxvomit.bsky.social) interacts with zoophiles. It made art with an open zoophile, Soren, (<https://archive.today/j2JIT>) and follows several open zoophiles.
+1. Rabid Fox Arts (@rabidfoxarts.bsky.social/@foxvomit.bsky.social) follows several open zoophiles.
 1. Riedn (@riedn.bsky.social) follows several open zoophiles.
 1. pubbycreature (@pubbycreature.bsky.social) follows several open zoophiles.
 1. She That Lurks (@lirke.bsky.social) follows several open zoophiles.
@@ -703,6 +702,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Love the Dragon (@lovethedog.bsky.social) said zoophilia is "gravely misunderstood:" (<https://archive.today/WGPNI>).
 1. Marisa (@marisavanima.bsky.social) supports zoophiles, writing "Zoo pride!" under a zoophile's post: (<https://archive.today/91EJO>), and replying to other zoophiles: (1: <https://archive.today/0DGLc> / 2: <https://archive.today/fitQ6> / 3: <https://archive.today/AvX5w>).
 1. "KeroTheWolf - Supporter" (@kerodefender.bsky.social) is an account made for the express purpose of defending Kero The Wolf.
+1. Soren (@feral4feral.art) previously identified as an open zoophile, and no longer identifies as one. They sent the Laelaps team a Pastebin with their explanation: (<https://archive.today/j7kcZ>). However, due to their continued association with open zoophiles, and phrasing like being "empathetic towards paraphiles" and that they "didn't see attraction itself as harmful," we've decided to change the label to Zoophile Supporter.
 
 ### Outed Zoophile
 
