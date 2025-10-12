@@ -657,7 +657,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. atpunz (@atpunz.bsky.social) follows several open zoophiles.
 1. Alec74 (@alec74.bsky.social) follows several open zoophiles.
 1. Rabid Fox Arts (@rabidfoxarts.bsky.social/@foxvomit.bsky.social) follows several open zoophiles.
-1. Riedn (@riedn.bsky.social) follows several open zoophiles.
 1. pubbycreature (@pubbycreature.bsky.social) follows several open zoophiles.
 1. She That Lurks (@lirke.bsky.social) follows several open zoophiles.
 1. foxy-box (@foxy-box.bsky.social) follows several open zoophiles.
