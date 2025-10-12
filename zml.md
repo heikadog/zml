@@ -627,7 +627,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Der4ng3d C4t (@xxdingusc4t.bsky.social) follows several open zoophiles.
 1. Felynn Angel (@felynnangelfur.bsky.social) follows several open zoophiles.
 1. Prof Lupus Sirius Lobato Fenrison (@lupussignatus.bsky.social) interacts with zoophiles, specifically interacting with a zoophile who posts animal genitalia: (<https://archive.today/E8ul8>).
-1. PupKnoti (@pupknoti.bsky.social) follows several open zoophiles.
 1. Flare (@flare-dragon.bsky.social) follows several open zoophiles.
 1. Dent (@divinedogteeth.bsky.social) follows several open zoophiles.
 1. Thixledown (@thixledown.bsky.social) follows several open zoophiles.
