@@ -659,6 +659,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. pubbycreature (@pubbycreature.bsky.social) follows several open zoophiles.
 1. She That Lurks (@lirke.bsky.social) follows several open zoophiles.
 1. foxy-box (@foxy-box.bsky.social) follows several open zoophiles.
+1. Java (@cookie.dog) follows several open zoophiles.
 
 ### Zoophile Supporter
 
