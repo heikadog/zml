@@ -701,6 +701,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Marisa (@marisavanima.bsky.social) supports zoophiles, writing "Zoo pride!" under a zoophile's post: (<https://archive.today/91EJO>), and replying to other zoophiles: (1: <https://archive.today/0DGLc> / 2: <https://archive.today/fitQ6> / 3: <https://archive.today/AvX5w>).
 1. "KeroTheWolf - Supporter" (@kerodefender.bsky.social) is an account made for the express purpose of defending Kero The Wolf.
 1. Orion (@feral4feral.art) previously identified as an open zoophile, and no longer identifies as one. They sent the Laelaps team a Pastebin with their explanation: (<https://archive.today/j7kcZ>). However, due to their continued association with open zoophiles, and phrasing like being "empathetic towards paraphiles" and that they "didn't see attraction itself as harmful," we've decided to change the label to Zoophile Supporter.
+1. Club Animalz (@animalz.bsky.social) is a venture started by outed zoophile Foxbearance/FoxB. We've labelled the official account as a Zoophile Supporter considering its proximity to the owner.
+1. doggyweekend (@doggyweekend.bsky.social) is a venture started by outed zoophile Foxbearance/FoxB. We've labelled the official account as a Zoophile Supporter considering its proximity to the owner.
 
 ### Outed Zoophile
 
