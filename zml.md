@@ -526,6 +526,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. luckybat (@luckyb4t.bsky.social) is an open zoophile.
 1. Zova (@sao-248770.bsky.social) is an open zoophile.
 1. Zarza (@zarzazeta.bsky.social) is an open zoophile.
+1. Zipwok (@zipwok.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter has previously stated that they are an open zoophile: (<https://archive.today/RPxyU>).
 
 ### Interacts with Zoophiles
 
