@@ -530,7 +530,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 
 ### Interacts with Zoophiles
 
-1. Shona (@shonawuff.bsky.social/@lukar.feral.army) follows and interacts with open zoophiles: (<https://archive.today/NNeP5>).
+1. Lukar (@lukarwuff.bsky.social/@lukar.feral.army) follows and interacts with open zoophiles: (<https://archive.today/NNeP5>).
 1. Kasper (@kasperkitten.bsky.social) follows several open zoophiles.
 1. Tizzy Sabercat (@pride-riot-saber.bsky.social) follows several open zoophiles.
 1. Aspen (@cryptidcanine.bsky.social) follows open zoophiles and has previously identified as an open zoophile.
