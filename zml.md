@@ -527,6 +527,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zova (@sao-248770.bsky.social) is an open zoophile.
 1. Zarza (@zarzazeta.bsky.social) is an open zoophile.
 1. Zipwok (@zipwok.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter has previously stated that they are an open zoophile: (<https://archive.today/RPxyU>).
+1. Lil thing (@horndogforsexysex.bsky.social) is an open zoophile: (<https://archive.today/a2f7v>).
 
 ### Interacts with Zoophiles
 
