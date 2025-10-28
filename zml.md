@@ -600,7 +600,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. mdouz (@mdouz.bsky.social) follows several open zoophiles.
 1. Spooky Eliot (@faggotfoxboy.bsky.social) follows several open zoophiles.
 1. sofia (@sofia454a0.bsky.social) follows several open zoophiles.
-1. coyoteboybark (@coyoteboybark.bsky.social) follows several open zoophiles.
 1. Leo the seal (@leotheseal.bsky.social) follows several open zoophiles.
 1. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
 1. AdvanWolv (@advanwolv.bsky.social) follows several open zoophiles.
