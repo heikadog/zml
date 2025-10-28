@@ -541,7 +541,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Anarcho-Mutt (@anarcho-mutt.bsky.social) only follows and is mutuals with an open zoophile.
 1. Brave Moya (@bravemoya.bsky.social) follows several open zoophiles.
 1. madhuaka (@madhuaka.bsky.social) follows several open zoophiles.
-1. Kaster (@pissbxtch.bsky.social) follows several open zoophiles.
 1. fawnly (@fawnly.bsky.social) follows several open zoophiles.
 1. Subwoofer (@subwoofuhr.bsky.social) follows several open zoophiles.
 1. GayGrayCat (@gayyellowcat.bsky.social) follows several open zoophiles.
@@ -567,8 +566,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Rusty Shackleford (@wildbuck55.bsky.social) follows several open zoophiles.
 1. leptonfox (@leptonfox.bsky.social) follows several open zoophiles.
 1. telain (@telain.bsky.social) follows several open zoophiles.
-1. gay cat (@usarnoesto.bsky.social) follows several open zoophiles.
-1. Kantra (@yeenbutter.bsky.social) follows several open zoophiles.
 1. Ashy (@ashynecro.bsky.social) follows several open zoophiles.
 1. Gussy (@colssi.bsky.social) follows several open zoophiles.
 1. phiner (@phiner.bsky.social) follows several open zoophiles.
@@ -605,7 +602,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. sofia (@sofia454a0.bsky.social) follows several open zoophiles.
 1. coyoteboybark (@coyoteboybark.bsky.social) follows several open zoophiles.
 1. Leo the seal (@leotheseal.bsky.social) follows several open zoophiles.
-1. MilkBark (@milkbark.bsky.social) follows several open zoophiles.
 1. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
 1. AdvanWolv (@advanwolv.bsky.social) follows several open zoophiles.
 1. cloud (@exsoldier.bsky.social) follows several open zoophiles.
