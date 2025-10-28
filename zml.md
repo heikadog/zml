@@ -537,7 +537,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. void (@puppyvoid.bsky.social) follows several open zoophiles.
 1. JenklinDog (@jenklindog.bsky.social) follows several open zoophiles.
 1. Lev (@levthsa.bsky.social) follows several open zoophiles.
-1. Apollo (@apolloshibe.feral.army/@puppypussy.bsky.social) follows known zoophiles. Additionally, in 2023, he had a conversation with an open zoophile on Twitter: (<https://archive.today/cPYCp>). _[We'd like to note that t  he zoophile's half of the conversation was never archived and has since been lost to time, but we've archived Apollo's half of the conversation in addition to providing a screenshot taken a day after the original exchange.]_ Archives of Apollo's half of the conversation: (1: <https://archive.today/JAgUE> / 2: <https://archive.today/jvJDj> / 3: <https://archive.today/zsnR4>).
+1. Apollo (@apolloshibe.feral.army/@puppypussy.bsky.social) follows known zoophiles. Additionally, in 2023, he had a conversation with an open zoophile on Twitter: (<https://archive.today/cPYCp>). _[We'd like to note that the zoophile's half of the conversation was never archived and has since been lost to time, but we've archived Apollo's half of the conversation in addition to providing a screenshot taken a day after the original exchange.]_ Archives of Apollo's half of the conversation: (1: <https://archive.today/JAgUE> / 2: <https://archive.today/jvJDj> / 3: <https://archive.today/zsnR4>).
 1. Anarcho-Mutt (@anarcho-mutt.bsky.social) only follows and is mutuals with an open zoophile.
 1. Brave Moya (@bravemoya.bsky.social) follows several open zoophiles.
 1. madhuaka (@madhuaka.bsky.social) follows several open zoophiles.
