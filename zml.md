@@ -177,7 +177,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. high4lifedude (@high4lifedude.bsky.social) is an open zoophile.
 1. howler (@howlerzeta.bsky.social) is an open zoophile.
 1. PumpyToy (@pumpytoy.bsky.social) is an open zoophile.
-1. The Trans Grinlin Queen (@nexiumnexus.bsky.social) is an open zoophile.
+1. The blackthroneforge (@nexiumnexus.bsky.social) is an open zoophile.
 1. cloacaposter (@cloacaposter.bsky.social) is an open zoophile.
 1. Miles (@milesthezshep.bsky.social) is an open zoophile.
 1. K9Nomad (@yotetrotter.bsky.social) is an open zoophile.
@@ -186,7 +186,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. UnusualHorse (@unusualhorse.bsky.social) is an open zoophile.
 1. Kazuma (@kazumathehorse.bsky.social) is an open zoophile.
 1. RealGrayWoof (@realgraywoof.bsky.social) is an open zoophile.
-1. Shizuka Haru (@shizukaharu.bsky.social) is an open zoophile.
 1. EmberHeart (@emberheart.bsky.social) is an open zoophile.
 1. A Very Zooey Deer (@thezooeydeer.bsky.social) is an open zoophile.
 1. Nex (@knottylist.bsky.social) is an open zoophile.
@@ -202,7 +201,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 1. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
 1. aves (@ornithophile.bsky.social) is an open zoophile.
-1. zedazoup (@zedazoup.bsky.social) is an open zoophile.
+1. whuddahell (@zedazoup.bsky.social) is an open zoophile.
 1. Maldrasen (@maldrasen.bsky.social) is an open zoophile.
 1. Fley the Dragon (@fleythedragon.bsky.social) is an open zoophile.
 1. ell (@ellbust.bsky.social) is an open zoophile.
@@ -241,7 +240,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Dasha (@varmxnt.bsky.social) is an open zoophile.
 1. INTLight5 (@intlight5.bsky.social) is an open zoophile.
 1. Dr0p (@dandeliondr0p.bsky.social) is an open zoophile.
-1. clyrotail (@clyrotail.bsky.social) is an open zoophile.
+1. Clyro cyan cinder civet (@clyrotail.bsky.social) is an open zoophile.
 1. nordzoo (@nordzoo.bsky.social) is an open zoophile.
 1. zee (@zeetaleopard.bsky.social) is an open zoophile.
 1. RabidMutt666 (@fckelonmuskyhusky.bsky.social) is an open zoophile.
@@ -275,7 +274,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. pennyplatypus (@pennyplatypus.bsky.social) is an open zoophile.
 1. Dew (@dew-drops.bsky.social) is an open zoophile.
 1. Tuvik (@tuvik-dog.xyz) is an open zoophile.
-1. electrowulf (@electrowulf.bsky.social) is an open zoophile.
+1. Living Metal, Undying Flesh (@electrowulf.bsky.social) is an open zoophile.
 1. Malique (@malique88.bsky.social) is an open zoophile.
 1. Auroran Zeta (@pastelzetafox.bsky.social) is an open zoophile.
 1. HornyBoi (@somehornyfur.bsky.social) is an open zoophile.
@@ -319,9 +318,9 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Chopper (@reindeerphile.bsky.social) is an open zoophile.
 1. Phorcys (@phorcys-aurora.bsky.social) is an open zoophile.
 1. Úlfur / Digi (@wildwolfdog.bsky.social) is an open zoophile.
-1. WasHere098 (@washere098.bsky.social) is an open zoophile: (<https://archive.today/IjykK>).
+1. Forgotten_Format (@washere098.bsky.social) is an open zoophile: (<https://archive.today/IjykK>).
 1. popcoals (@popcoals.bsky.social) is an open zoophile. They asked for a "zoophile hypnosis GIF," referring to people who are against zoophilia as "antis:" (<https://archive.today/mdEmm>).
-1. Sebastian (@pua.bsky.social) is an open zoophile.
+1. angel (@pua.bsky.social) is an open zoophile.
 1. DaddyVox (@voxmydude.bsky.social) is an open zoophile.
 1. John Ono Lemon (@doublefantasyqueer.bsky.social) is an open zoophile.
 1. dog kisser (@arfowo.bsky.social) is an open zoophile.
@@ -401,7 +400,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Ri-Ri/Akechi/Den (@risley1circus.bsky.social) is an open zoophile.
 1. Lash The Good Boy (@lashthegoodboy.bsky.social) is an open zoophile.
 1. Fiber Dog Z (@fiberdogz.bsky.social) is an open zoophile.
-1. ren (@natsus4ki.bsky.social) is an open zoophile.
+1. ren (@natsus4ki.bsky.sknottedbitchocial) is an open zoophile.
 1. browserreal (@browserreal.bsky.social) is an open zoophile.
 1. CrouchingCC (@crouchingcc.bsky.social) is an open zoophile.
 1. Donku (@phantomwolfy.bsky.social) is an open zoophile.
