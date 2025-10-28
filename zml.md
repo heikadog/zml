@@ -445,7 +445,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. aardvarklove (@aardvarklove.bsky.social) is an open zoophile.
 1. Toxic (@baxterartworks.com) is an open zoophile: (<https://archive.today/jnyeV>).
 1. asherfox (@asherfox.bsky.social) is an open zoophile.
-1. KnottyBearChaser (@kinky2beark9.bsky.social) is an open zoophile.
 1. mardyphin (@mardyphin.bsky.social) is an open zoophile.
 1. TomKoeln (@tomkoeln.bsky.social) is an open zoophile.
 1. Sonata Dusk (@z00sonata.bsky.social) is an open zoophile.
