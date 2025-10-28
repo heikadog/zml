@@ -83,7 +83,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. unknownanybody (@unknownanybody.bsky.social) is an open zoophile.
 1. Trill (@thecatstrill.bsky.social) is an open zoophile.
 1. Zooier Than Thou (@zoo.wtf) is a zoophilic podcast.
-1. Adramedes (@adramedes.bsky.social) only follows zoophiles. Additionally, they run a zoophilic Telegram group, as evident from their Twitter: (<https://twitter.com/adramedes>).
+1. Adramedes (@adramedes.bsky.social) only follows zoophiles. Additionally, they run a zoophilic Telegram group, as evident from their Twitter: (<https://archive.today/EE1tU>).
 1. Doughnuts (@doughnutzooey.bsky.social) is an open zoophile.
 1. ZetaFoxyFluffs (@zetafoxyfluffs.zoofurs.net) is an open zoophile.
 1. Your Local Femboy (@yourlocalfxmboy.bsky.social) is an open zoophile.
