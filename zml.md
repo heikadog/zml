@@ -521,6 +521,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lil thing (@horndogforsexysex.bsky.social) is an open zoophile: (<https://archive.today/a2f7v>).
 1. Donku (@phantomwolfy.bsky.social) is an open zoophile.
 1. Rikena_huzzkyMutty (@aidahusko.bsky.social) is an open zoophile: (<https://archive.today/CUEZK>).
+1. Lyronic (@hotdogjumpup.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
