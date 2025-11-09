@@ -337,7 +337,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Manure Wake (@manurewake.bsky.social) is an open zoophile.
 1. A Logical Thylacine (@logicthylacine.bsky.social) is an open zoophile. Even though their Twitter account is locked, their bio has a series of coded symbols that act as shorthand for their experiences with zoophilia, otherwise known as a "Zoo Code": (<https://archive.today/P1gjr>). _[It wasn't archived, but we should note the same code format was also on Thera's profile before it got suspended.]_ They also only follow open zoophiles.
 1. Frankie (@fr4nkie.bsky.social) is an open zoophile: (<https://archive.today/HV21l>).
-1. max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
+1. vaporeon/max (@shinyvaporeon.bsky.social) is an open zoophile: (<https://archive.today/BOyKO>).
 1. Trax (@zooeytrax.bsky.social) is an open zoophile.
 1. yetagainfox (@yetagainfox.bsky.social) is an open zoophile.
 1. Jalozo (@jalozo.bsky.social) is an open zoophile.
