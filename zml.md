@@ -524,6 +524,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lyronic (@hotdogjumpup.bsky.social) is an open zoophile.
 1. Kutya (@koirapotes.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they previously held a Bluesky account under this same name with zoophilic dogwhistles, and their now-suspended Twitter had zoophilic dogwhistles in its display name: (<https://archive.today/Z7YQX>). They also follow open zoophiles.
 1. high ranking tail pervert (@tailgrinder.bsky.social) is an open zoophile.
+1. KnottyKing (@biggestdoggo.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
