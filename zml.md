@@ -526,6 +526,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. high ranking tail pervert (@tailgrinder.bsky.social) is an open zoophile.
 1. KnottyKing (@biggestdoggo.bsky.social) is an open zoophile.
 1. Mudkip (@zooeymudkip.bsky.social) is an open zoophile.
+1. doggo (@watcherwatcher.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
