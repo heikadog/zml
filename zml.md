@@ -145,7 +145,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Renzo the Fox (@rykes.bsky.social) is an open zoophile.
 1. Ryke (@ryke.bsky.social/@rykead.bsky.social) is an open zoophile, at one point having the Greek zeta in their Steam profile: (<https://archive.today/mg1Fc>), being in a group on SoFurry called SoFurry Zoophiles: (<https://archive.today/LiTVQ>), and an earlier iteration of their Steam profile showed them in a Steam group called "Zoophiles:" (<https://archive.today/O0y38>).
 1. Lykos (@knot-dog.bsky.social) is an open zoophile.
-1. heika.dogfucker (@heikadogfucker.bsky.social) is a gimmick account made with the intent to frame heikadog as a zoophile using Thera's art.
 1. Ryder (@rryder420.bsky.social) is an open zoophile: (<https://archive.today/cGWzI>).
 1. DylantheZoo (@dythezoo.bsky.social) is an open zoophile.
 1. Revvy (@revvyboi.bsky.social) is an open zoophile.
