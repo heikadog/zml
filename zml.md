@@ -473,7 +473,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Lee Jade (@leejadezeta.bsky.social) is an open zoophile.
 1. Arlo the Otter (@domotter90.bsky.social) is an open zoophile.
 1. VoidFur (@voidfur33.bsky.social) is an open zoophile.
-1. BarkBrainedBeta (@barkbrainedbeta.bsky.social) is an open zoophile: (<https://archive.today/oYC6H>).
+1. FoxCub621/BarkBrainedBeta (@foxcub621/@barkbrainedbeta.bsky.social) is an open zoophile: (<<https://archi> ve.today/oYC6H>).
 1. krcon (@krcon.bsky.social) admitted to being a zoophile in a FurAffinity journal: (<https://archive.today/V96UX>).
 1. Melcifer (@melciferrr.bsky.social) is an open zoophile.
 1. Bailey Shep (@brattymawz.bsky.social) is an open zoophile.
@@ -527,6 +527,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Mudkip (@zooeymudkip.bsky.social) is an open zoophile.
 1. doggo (@watcherwatcher.bsky.social) is an open zoophile.
 1. Res Sys (@res-system.bsky.social) is an open zoophile.
+1. zetamaw (@zetamaw.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
