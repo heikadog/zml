@@ -449,7 +449,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. PissySatin (@pissysatin.bsky.social) is an open zoophile.
 1. daimianthedoberman (@daimianthedoberman.bsky.social) is an open zoophile: (<https://archive.today/ciDhb>).
 1. oncetrated ough (@pantychu666.bsky.social) is an open zoophile.
-1. lowlyhollow (@bruhskater.bsky.social) is an open zoophile.
 1. Anziris (@anziris.bsky.social) is an open zoophile.
 1. kaiman98 (@kaiman98.bsky.social) is an open zoophile.
 1. zetalef (@zetalef.bsky.social) is an open zoophile.
