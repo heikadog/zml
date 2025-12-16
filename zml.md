@@ -269,7 +269,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. pennyplatypus (@pennyplatypus.bsky.social) is an open zoophile.
 1. Dew (@dew-drops.bsky.social) is an open zoophile.
 1. Tuvik (@tuvik-dog.xyz) is an open zoophile.
-1. Living Metal, Undying Flesh (@electrowulf.bsky.social) is an open zoophile.
+1. Maned Horror (@electrowulf.bsky.social) is an open zoophile.
 1. Malique (@malique88.bsky.social) is an open zoophile.
 1. Auroran Zeta (@pastelzetafox.bsky.social) is an open zoophile.
 1. HornyBoi (@somehornyfur.bsky.social) is an open zoophile.
