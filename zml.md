@@ -518,7 +518,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Zipwok (@zipwok.bsky.social) is an open zoophile. While they don't say it on Bluesky, their Twitter has previously stated that they are an open zoophile: (<https://archive.today/RPxyU>).
 1. Lil thing (@horndogforsexysex.bsky.social) is an open zoophile: (<https://archive.today/a2f7v>).
 1. Donku (@phantomwolfy.bsky.social) is an open zoophile.
-1. Rikena_huzzkyMutty (@aidahusko.bsky.social) is an open zoophile: (<https://archive.today/CUEZK>).
+1. Rikena (@aidahusko.bsky.social) is an open zoophile: (<https://archive.today/CUEZK>).
 1. Lyronic (@hotdogjumpup.bsky.social) is an open zoophile.
 1. Kutya (@koirapotes.bsky.social) is an open zoophile. Though they don't say it on Bluesky, they previously held a Bluesky account under this same name with zoophilic dogwhistles, and their now-suspended Twitter had zoophilic dogwhistles in its display name: (<https://archive.today/Z7YQX>). They also follow open zoophiles.
 1. high ranking tail pervert (@tailfrotter.bsky.social) is an open zoophile.
@@ -528,6 +528,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Res Sys (@res-system.bsky.social) is an open zoophile.
 1. zetamaw (@zetamaw.bsky.social) is an open zoophile.
 1. Beanie (@b3an1.bsky.social) is an open zoophile.
+1. noodle (@pupsiclestick.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
