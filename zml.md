@@ -529,7 +529,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. zetamaw (@zetamaw.bsky.social) is an open zoophile.
 1. Beanie (@b3an1.bsky.social) is an open zoophile.
 1. noodle (@pupsiclestick.bsky.social) is an open zoophile.
-1. frostcollie (@frostcollie.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
