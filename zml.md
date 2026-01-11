@@ -435,7 +435,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Cookie Lover (@lovedacookie.bsky.social) is an open zoophile. "Cookie" is a euphemism for a dog's vagina, and their header is a graphic in the colors of the zoophile flag.
 1. Lea (@leablanket.bsky.social) is an open zoophile.
 1. aardvarklove (@aardvarklove.bsky.social) is an open zoophile.
-1. Toxic/LD50 (@btwld50.bsky.social/@baxterartworks.com) is an open zoophile: (<https://archive.today/jnyeV>).
+1. Toxic/LD50 (@ld50.lol/@baxterartworks.com) is an open zoophile: (<https://archive.today/jnyeV>).
 1. asherfox (@asherfox.bsky.social) is an open zoophile.
 1. mardyphin (@mardyphin.bsky.social) is an open zoophile.
 1. TomKoeln (@tomkoeln.bsky.social) is an open zoophile.
