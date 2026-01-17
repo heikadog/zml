@@ -570,7 +570,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. manlytears89 (@manlytears89.bsky.social) follows several open zoophiles.
 1. HuskyFortune (@huskyfortune.bsky.social) follows several open zoophiles.
 1. TranzWolf (@tranzwolf.bsky.social) follows several open zoophiles.
-1. Dark Violet (@darkviolet.bsky.social) has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
 1. Rusty Shackleford (@wildbuck55.bsky.social) follows several open zoophiles.
 1. leptonfox (@leptonfox.bsky.social) follows several open zoophiles.
 1. telain (@telain.bsky.social) follows several open zoophiles.
@@ -703,6 +702,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Alligator Jesie (@aligatorjesie.bsky.social) is an employee of Exotic Erotics, and has made comments about how lifecasting isn't actually abuse. In particular, they said that animals "don't have a concept of a bad touch:" (<https://archive.today/jY6oL>). Despite their claim that Exotic Erotics uses "the same process to cast animals vets & zoos use in basic handling" (<https://archive.today/cwd3b>), the end result of the cast by Exotic Erotics compared to the casts veterinarians make for animals is still a real animal used for the sexual pleasure of a human being. Veterinary casts serve an animal's medical interests, and lifecasting provides no benefit to the animal at all. Animals cannot consent to lifecasting. We cannot support this defense.
 1. M.M.W Tyrantberry (@tyrantberry.bsky.social) has, on numerous occasions, responded positively to posts made by the Zooier Than Thou Bluesky account: (1: <https://archive.today/uRcWp> / 2: <https://archive.today/dAAxQ>). _[We've archived the rest of the posts in the latter's associated thread.]_
 1. LoVre (@yaelovre.bsky.social) has responded positively to zoophilic posts, including, among other posts, one where they told a zoophile that a dog's tongue was "better" than a cat's: (<https://archive.today/WVaJj>), and a response to a now-deleted post that implies zoophiles should "practice:" (<https://archive.today/tyo9a>).
+1. Dark Violet (@darkviolet.bsky.social) has openly made art for Akito, an open zoophile who runs a zoophile podcast: (<https://archive.today/5BhlN)>). Additionally, she has liked a lot of posts from zoophiles, both known and open: _[CW for one of the screenshots including NSFW feral art drawn by a zoophile.]_ (<https://archive.today/Ug35l>).
 
 ### Outed Zoophile
 
