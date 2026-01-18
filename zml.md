@@ -70,7 +70,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. SmolHawk (@sm0lhawk.bsky.social) is an open zoophile.
 1. Heart Chee (@heartchee.bsky.social) is an open zoophile.
 1. Alder (@canislupusstupidus.bsky.social) is an open zoophile.
-1. Aster (@aster.zoolandia.org) is an open zoophile.
+1. Aster (@asteranimal.zoolandia.org) is an open zoophile.
 1. Kane (@canidliker.bsky.social) is an open zoophile.
 1. RoxanaTheWolf (@roxanathewolf.bsky.social) is an open zoophile.
 1. Maple (@maplebark.bsky.social) is an open zoophile.
