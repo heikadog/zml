@@ -605,7 +605,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. rul54 (@rul54.bsky.social) follows several open zoophiles.
 1. Zetafloofz (@zetafloofz.bsky.social) follows several open zoophiles.
 1. mdouz (@mdouz.bsky.social) follows several open zoophiles.
-1. Spooky Eliot (@faggotfoxboy.bsky.social) follows several open zoophiles.
 1. sofia (@sofia454a0.bsky.social) follows several open zoophiles.
 1. Leo the seal (@leotheseal.bsky.social) follows several open zoophiles.
 1. klatski (@klatski.bsky.social) follows and interacts with open zoophiles: (<https://archive.today/qXqF9>).
@@ -620,7 +619,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Foxy (@foxy9846.bsky.social) follows several open zoophiles.
 1. SecretHorsie (@secrethorsie.bsky.social) follows several open zoophiles.
 1. RoseyGrl (@roseygrl.bsky.social) follows several open zoophiles.
-1. Der4ng3d C4t (@xxdingusc4t.bsky.social) follows several open zoophiles.
 1. Felynn Angel (@felynnangelfur.bsky.social) follows several open zoophiles.
 1. Prof Lupus Sirius Lobato Fenrison (@lupussignatus.bsky.social) interacts with zoophiles, specifically interacting with a zoophile who posts animal genitalia: (<https://archive.today/E8ul8>).
 1. Flare (@flare-dragon.bsky.social) follows several open zoophiles.
