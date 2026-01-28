@@ -528,6 +528,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Beanie (@b3an1.bsky.social) is an open zoophile.
 1. Zarfy (@zarfyzoo.bsky.social) is an open zoophile.
 1. red fang (@metacarpul.bsky.social) is an open zoophile.
+1. woofwaffwag (@woofwaffwag.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
