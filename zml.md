@@ -530,6 +530,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. red fang (@metacarpul.bsky.social) is an open zoophile.
 1. woofwaffwag (@woofwaffwag.bsky.social) is an open zoophile.
 1. Ilovemydog (@ilovedogs19.bsky.social) is an open zoophile.
+1. Dogkisser (@dogkisserzoo.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
