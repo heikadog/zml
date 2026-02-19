@@ -190,7 +190,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. ThatOneLeafy (@zooeyspriggy.bsky.social) is an open zoophile.
 1. Sparkle Cloud (@sparklecloud.zoofurs.net) is an open zoophile.
 1. Blue (@sheppypaws53.bsky.social) is an open zoophile.
-1. Sundog (@zsundog.bsky.social) is an open zoophile.
 1. Rosielynn (@rosielynn.bsky.social) is an open zoophile.
 1. kinkyone (@kinkyone.zoofurs.net) is an open zoophile.
 1. Selindrila Shoras (@selindrila.bsky.social) confessed to being a zoophile: (<https://archive.today/qZRFB>).
