@@ -493,6 +493,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. woofwaffwag (@woofwaffwag.bsky.social) is an open zoophile.
 1. Ilovemydog (@ilovedogs19.bsky.social) is an open zoophile.
 1. Dogkisser (@dogkisserzoo.bsky.social) is an open zoophile.
+1. da real derpina (@eroticaa.bsky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
