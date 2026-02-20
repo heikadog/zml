@@ -268,7 +268,6 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Pferdefreund (@pferd.bsky.social) is an open zoophile.
 1. Loba Vermelha (@goennering.bsky.social) is an open zoophile.
 1. Kitsune (@kitsune27.bsky.social) is an open zoophile.
-1. Carodeniu (@carodenius.bsky.social) is an open zoophile.
 1. Baphomet (@zoopride666.bsky.social) is an open zoophile.
 1. Mavrick (@mavrickz.bsky.social) is an open zoophile.
 1. Zip (@furryzip.bsky.social) is an open zoophile.
