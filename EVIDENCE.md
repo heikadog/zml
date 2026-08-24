@@ -753,6 +753,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Cowboi69 (@cwbi6.bsky.social) was outed as a zoophile. They referred to zoophiles as a "minority community": (<https://archive.today/oOabA>), and posted on multiple zoophilic online forums under the same username, particularly writing a "guide to IRL meetups" for a zoophilic forum: (<https://archive.today/AsDj3>). When asked about this, they said, "Shhhh. Don't tell them my secret": (<https://archive.today/URSpE>).
 1. Nutalie (@nutty.critter.land) was outed as a zoophile. In a public Telegram group chat for open zoophiles, they said that they "wanna get on [Laelaps] the normal way," and asked for people to not "report [them] to [the] list," opting to "let it happen naturally": (<https://archive.today/kNPV9>).
 1. Akira Husky (@akiraslutsky.bsky.social) admitted to being a zoophile in a Telegram group: (<https://archive.today/8WL0d>). Pictured in the archive, the thumbnail for a video she posted includes the same fursuit she posts publicly. In the archive, she also says, "I love being a zoosuiter", which is a reference to being a zoophile and a fursuiter.
+1. Shortcake (@shortcakepwppy.bsky.social) admitted to being a zoophile in a Discord server: (<https://archive.today/tuzFd>).
 
 ### Incidents
 
