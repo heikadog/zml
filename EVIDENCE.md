@@ -544,6 +544,7 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. vulturecreature (@vulturecreature.bsky.social) is an open zoophile.
 1. Alexis Rivers (@alexisrivers.bsky.social) is an open zoophile.
 1. Bird Enjoyer (@birdenjoyer67.bsky.social) is an open zoophile. Their banner is a zoophile dogwhistle, consisting of the zoophile flag colors with the message, "Stay proud."
+1. aero (@sharkling.eurosky.social) is an open zoophile.
 
 ### Interacts with Zoophiles
 
