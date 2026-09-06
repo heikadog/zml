@@ -546,6 +546,8 @@ These stipulations prevent innocent people from being unfairly labelled, as we'r
 1. Bird Enjoyer (@birdenjoyer67.bsky.social) is an open zoophile. Their banner is a zoophile dogwhistle, consisting of the zoophile flag colors with the message, "Stay proud."
 1. Even though they don't explicitly say they're a zoophile, Jirikdos (@oreothecollie.bsky.social) has made multiple posts about "kissing" and being "addicted" to their dog: (<https://archive.today/GBVCa>), bought a commission from an open zoophile: (<https://archive.today/Cg2iF>), and follows multiple open zoophiles. We've labelled them an Open Zoophile as of this writing.
 1. Oughh I'm So Green (@oughhimsogreen.bsky.social) is an open zoophile.
+1. sammy (@cherrykitten.gay) is an open zoophile. It has posted openly about how it "[hates] that 'white women are dogfuckers' cliche, most white women would probably want me dead because i actually want to fuck dogs...": (<https://archive.today/gWUKM>), and how "someone with 'zoophiles dni' in their bio [interacted] with [its] posts about dogs barking making [it] horny": (<https://archive.today/ZdFyZ>).
+1. In a reply to the second post from sammy's entry, charlottepony (@charlottepony.bsky.social) said "zoophiles are based we're awesome," implying that she is a zoophile: (<https://archive.today/bR5uW>).
 
 ### Interacts with Zoophiles
 
